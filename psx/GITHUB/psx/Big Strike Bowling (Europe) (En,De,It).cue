@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Big Strike Bowling (Europe) (En,De,It).zip

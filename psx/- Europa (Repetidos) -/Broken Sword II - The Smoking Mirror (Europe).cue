@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Broken Sword II - The Smoking Mirror (Europe).zip

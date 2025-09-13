@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Spec Ops - Stealth Patrol (Europe) (En,Fr,De,Es,It).zip

@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Rising Zan - The Samurai Gunman (Europe) (En,Fr,De,Es,It).zip

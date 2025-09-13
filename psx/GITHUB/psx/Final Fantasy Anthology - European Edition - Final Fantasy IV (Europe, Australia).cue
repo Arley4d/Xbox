@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Final Fantasy Anthology - European Edition - Final Fantasy IV (Europe, Australia).zip

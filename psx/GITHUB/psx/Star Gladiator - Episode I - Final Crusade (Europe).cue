@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Star Gladiator - Episode I - Final Crusade (Europe).zip

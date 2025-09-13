@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Disney's The Emperor's New Groove (Europe).zip

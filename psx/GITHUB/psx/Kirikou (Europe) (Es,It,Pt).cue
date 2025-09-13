@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Kirikou (Europe) (Es,It,Pt).zip

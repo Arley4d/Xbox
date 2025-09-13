@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/King's Field (Europe) (En,Fr,De).zip

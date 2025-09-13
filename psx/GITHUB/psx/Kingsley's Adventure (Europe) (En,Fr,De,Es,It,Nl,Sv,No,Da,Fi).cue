@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Kingsley's Adventure (Europe) (En,Fr,De,Es,It,Nl,Sv,No,Da,Fi).zip

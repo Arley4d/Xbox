@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Lucky Luke - Western Fever (Europe) (En,Fr,De,Es,It,Nl).zip

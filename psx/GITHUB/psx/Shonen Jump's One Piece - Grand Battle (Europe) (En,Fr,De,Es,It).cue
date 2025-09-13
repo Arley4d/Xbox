@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Shonen Jump's One Piece - Grand Battle (Europe) (En,Fr,De,Es,It).zip

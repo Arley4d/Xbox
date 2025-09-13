@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Barca Manager 2000 (Spain) (Es,Ca).zip

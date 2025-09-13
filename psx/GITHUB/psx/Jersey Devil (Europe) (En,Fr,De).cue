@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Jersey Devil (Europe) (En,Fr,De).zip

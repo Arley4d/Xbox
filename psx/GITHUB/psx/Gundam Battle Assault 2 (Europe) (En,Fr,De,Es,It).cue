@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Gundam Battle Assault 2 (Europe) (En,Fr,De,Es,It).zip

@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Auto Destruct (Europe) (En,Fr,De,Es,Sv).zip

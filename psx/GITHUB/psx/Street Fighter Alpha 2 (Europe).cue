@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Street Fighter Alpha 2 (Europe).zip

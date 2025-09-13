@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Broken Sword - La Leyenda de los Templarios (Spain).zip

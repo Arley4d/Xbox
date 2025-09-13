@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Mundial 2002 Challenge (Portugal).zip

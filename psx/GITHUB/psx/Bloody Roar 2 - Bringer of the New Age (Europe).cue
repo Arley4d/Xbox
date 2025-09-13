@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Bloody Roar 2 - Bringer of the New Age (Europe).zip

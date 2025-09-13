@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/E.T. the Extra-Terrestrial - Interplanetary Mission (Europe) (En,Fr,De,Es,It).zip

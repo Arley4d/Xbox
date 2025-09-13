@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Formula One Arcade (Europe) (En,Fr,De,Es,It).zip

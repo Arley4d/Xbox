@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Devil's Deception (Europe) (En,Fr,De).zip

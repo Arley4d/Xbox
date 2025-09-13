@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Broken Sword - The Shadow of the Templars (Europe).zip

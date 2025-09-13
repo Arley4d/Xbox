@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Power Serve (Europe) (En,Fr,De).zip

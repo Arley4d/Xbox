@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Tunguska - Legend of Faith (Europe) (En,Fr,De,Es,It).zip

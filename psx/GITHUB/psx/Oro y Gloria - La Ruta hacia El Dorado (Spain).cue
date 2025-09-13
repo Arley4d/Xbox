@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Oro y Gloria - La Ruta hacia El Dorado (Spain).zip

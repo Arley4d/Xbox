@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Street Fighter EX2 Plus (Europe).zip

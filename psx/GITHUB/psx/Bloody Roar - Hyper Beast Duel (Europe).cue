@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Bloody Roar - Hyper Beast Duel (Europe).zip

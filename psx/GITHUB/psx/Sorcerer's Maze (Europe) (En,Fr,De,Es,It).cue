@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Sorcerer's Maze (Europe) (En,Fr,De,Es,It).zip

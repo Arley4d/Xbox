@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Final Fantasy VI (Europe, Australia).zip

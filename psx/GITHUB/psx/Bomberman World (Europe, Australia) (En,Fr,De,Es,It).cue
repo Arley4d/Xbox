@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Bomberman World (Europe, Australia) (En,Fr,De,Es,It).zip

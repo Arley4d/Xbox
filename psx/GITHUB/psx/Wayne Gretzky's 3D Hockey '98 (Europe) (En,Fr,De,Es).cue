@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Wayne Gretzky's 3D Hockey '98 (Europe) (En,Fr,De,Es).zip

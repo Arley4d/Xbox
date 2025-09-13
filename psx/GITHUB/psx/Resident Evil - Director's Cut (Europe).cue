@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Resident Evil - Director's Cut (Europe).zip

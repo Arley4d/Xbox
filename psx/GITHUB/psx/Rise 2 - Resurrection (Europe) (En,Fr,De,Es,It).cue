@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Rise 2 - Resurrection (Europe) (En,Fr,De,Es,It).zip

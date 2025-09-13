@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Gran Turismo (Europe) (En,Fr,De,Es,It) (EDC).zip

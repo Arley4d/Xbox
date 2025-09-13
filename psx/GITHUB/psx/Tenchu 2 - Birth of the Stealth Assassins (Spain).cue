@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Tenchu 2 - Birth of the Stealth Assassins (Spain).zip

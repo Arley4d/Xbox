@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Capcom vs. SNK - Millennium Fight 2000 Pro (Europe).zip

@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Asterix (Europe) (En,Fr,Es,It).zip

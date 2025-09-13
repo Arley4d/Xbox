@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Aztec - The Curse in the Heart of the City of Gold (Europe) (Es,It).zip

@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Spyro the Dragon (Europe, Australia) (En,Fr,De,Es,It).zip

@@ -1,2 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Disney's 102 Dalmatians - Puppies to the Rescue (Scandinavia) (Sv,No,Da).zip
-https://myrient.erista.me/files/Redump/Sony - PlayStation - SBI Subchannels/Disney's 102 Dalmatians - Puppies to the Rescue (Scandinavia) (Sv,No,Da).zip

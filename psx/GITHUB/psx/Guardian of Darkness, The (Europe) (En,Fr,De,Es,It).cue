@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Guardian of Darkness, The (Europe) (En,Fr,De,Es,It).zip

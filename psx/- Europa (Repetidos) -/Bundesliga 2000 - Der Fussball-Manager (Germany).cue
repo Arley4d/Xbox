@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Bundesliga 2000 - Der Fussball-Manager (Germany).zip

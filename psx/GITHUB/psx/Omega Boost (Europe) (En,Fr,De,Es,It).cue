@@ -1,1 +1,0 @@
-https://myrient.erista.me/files/Redump/Sony - PlayStation/Omega Boost (Europe) (En,Fr,De,Es,It).zip

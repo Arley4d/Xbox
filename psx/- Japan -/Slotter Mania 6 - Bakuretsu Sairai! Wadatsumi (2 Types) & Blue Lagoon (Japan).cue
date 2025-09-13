@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania 6 - Bakuretsu Sairai! Wadatsumi (2 Types) & Blue Lagoon (Japan).zip

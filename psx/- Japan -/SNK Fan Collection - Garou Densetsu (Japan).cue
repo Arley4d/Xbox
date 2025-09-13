@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SNK Fan Collection - Garou Densetsu (Japan).zip

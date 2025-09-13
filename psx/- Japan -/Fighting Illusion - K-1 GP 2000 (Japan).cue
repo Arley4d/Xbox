@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Fighting Illusion - K-1 GP 2000 (Japan).zip

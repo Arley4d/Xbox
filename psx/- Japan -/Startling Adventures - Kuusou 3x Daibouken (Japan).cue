@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Startling Adventures - Kuusou 3x Daibouken (Japan).zip

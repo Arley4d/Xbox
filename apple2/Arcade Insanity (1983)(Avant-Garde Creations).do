@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Arcade%20Insanity%20%281983%29%28Avant-Garde%20Creations%29.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou 7 - Maker Suishou Manual Vol. 1 - Beat the Dragon 2, Lupin Sansei, Hot Rod Queen (Japan).zip

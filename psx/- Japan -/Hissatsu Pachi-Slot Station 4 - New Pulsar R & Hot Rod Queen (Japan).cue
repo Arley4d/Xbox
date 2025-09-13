@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachi-Slot Station 4 - New Pulsar R & Hot Rod Queen (Japan).zip

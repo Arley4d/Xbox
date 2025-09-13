@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Mad Stalker - Full Metal Force (Japan).zip

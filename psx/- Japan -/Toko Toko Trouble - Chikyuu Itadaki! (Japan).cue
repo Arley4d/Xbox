@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Toko Toko Trouble - Chikyuu Itadaki! (Japan).zip

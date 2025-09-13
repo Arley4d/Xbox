@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Jitsuyou Series Vol. 17 - Planetarium (Japan).zip

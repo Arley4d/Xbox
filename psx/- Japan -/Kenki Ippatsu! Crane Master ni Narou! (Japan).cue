@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kenki Ippatsu! Crane Master ni Narou! (Japan).zip

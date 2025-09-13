@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Trump Collection Bottom Up Teki Trump Seikatsu (J) [M][o1].ws

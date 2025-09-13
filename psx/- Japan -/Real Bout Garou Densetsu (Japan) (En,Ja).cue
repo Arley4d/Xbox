@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Real Bout Garou Densetsu (Japan) (En,Ja).zip

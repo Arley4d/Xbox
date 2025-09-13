@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Combination Pro Soccer - J.League no Kantoku ni Natte Sekai o Mezase! (Japan).zip

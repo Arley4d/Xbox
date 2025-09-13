@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/YaWaRa! 2 - A Fashionable Judo Girl! (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Card Captor Sakura - Sakura to Fushigi na Clow Card (J) [M][!].ws

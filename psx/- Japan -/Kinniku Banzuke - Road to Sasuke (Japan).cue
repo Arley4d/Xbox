@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kinniku Banzuke - Road to Sasuke (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Click Manga - Dynamic Robot Taisen 1 - Shutsugeki! Kyoui no Robot Gundan!! (Japan).zip

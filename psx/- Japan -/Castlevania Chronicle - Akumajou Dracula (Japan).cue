@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Castlevania Chronicle - Akumajou Dracula (Japan).zip

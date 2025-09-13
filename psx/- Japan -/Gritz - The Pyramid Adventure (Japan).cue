@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gritz - The Pyramid Adventure (Japan).zip

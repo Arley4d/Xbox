@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/SD Gundam - Emotional Jam (J) [M][!].ws

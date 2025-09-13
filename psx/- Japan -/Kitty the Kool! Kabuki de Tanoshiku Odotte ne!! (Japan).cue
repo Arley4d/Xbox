@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kitty the Kool! Kabuki de Tanoshiku Odotte ne!! (Japan).zip

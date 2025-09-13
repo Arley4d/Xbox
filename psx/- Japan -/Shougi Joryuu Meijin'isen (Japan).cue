@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shougi Joryuu Meijin'isen (Japan).zip

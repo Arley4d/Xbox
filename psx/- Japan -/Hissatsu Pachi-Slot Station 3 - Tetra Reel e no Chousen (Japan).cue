@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachi-Slot Station 3 - Tetra Reel e no Chousen (Japan).zip

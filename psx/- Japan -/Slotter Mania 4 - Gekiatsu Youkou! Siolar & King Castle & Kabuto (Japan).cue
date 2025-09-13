@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania 4 - Gekiatsu Youkou! Siolar & King Castle & Kabuto (Japan).zip

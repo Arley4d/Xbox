@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Laser Soft Visual Collection Vol. 1 - Cosmic Fantasy Visual-shuu (Japan).zip

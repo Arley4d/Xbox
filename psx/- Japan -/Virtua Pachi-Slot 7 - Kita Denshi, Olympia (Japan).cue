@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Virtua Pachi-Slot 7 - Kita Denshi, Olympia (Japan).zip

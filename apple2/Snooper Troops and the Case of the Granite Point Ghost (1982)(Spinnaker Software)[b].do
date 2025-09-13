@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Snooper%20Troops%20and%20the%20Case%20of%20the%20Granite%20Point%20Ghost%20%281982%29%28Spinnaker%20Software%29%5Bb%5D.zip

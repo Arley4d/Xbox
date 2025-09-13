@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Hataraku Shoujo - Tekipaki Working Love (Japan).zip

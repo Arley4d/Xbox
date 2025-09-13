@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Kaze Kiri - Ninja Action (Japan).zip

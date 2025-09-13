@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Blaze & Blade - Eternal Quest (Germany).zip

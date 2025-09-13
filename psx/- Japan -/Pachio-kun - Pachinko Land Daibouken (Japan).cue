@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachio-kun - Pachinko Land Daibouken (Japan).zip

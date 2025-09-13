@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Langrisser Millenium WS - The Last Century (J) [M][!].ws

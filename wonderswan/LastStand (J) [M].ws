@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/LastStand (J) [M].ws

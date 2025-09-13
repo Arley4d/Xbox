@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Lost Sword - Ushinawareta Seiken (Japan).zip

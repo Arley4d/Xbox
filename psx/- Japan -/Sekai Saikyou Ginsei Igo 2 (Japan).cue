@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sekai Saikyou Ginsei Igo 2 (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/X-Men vs. Street Fighter - EX Edition (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Little Big Adventure (Europe) (En,Fr,De,Es,It) (Beta) (1997-02-05).zip

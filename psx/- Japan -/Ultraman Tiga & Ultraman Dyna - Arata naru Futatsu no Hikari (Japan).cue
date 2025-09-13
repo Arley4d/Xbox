@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ultraman Tiga & Ultraman Dyna - Arata naru Futatsu no Hikari (Japan).zip

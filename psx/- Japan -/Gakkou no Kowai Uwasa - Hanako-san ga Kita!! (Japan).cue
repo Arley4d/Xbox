@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gakkou no Kowai Uwasa - Hanako-san ga Kita!! (Japan).zip

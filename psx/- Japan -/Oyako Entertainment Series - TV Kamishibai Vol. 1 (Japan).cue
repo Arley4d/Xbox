@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Oyako Entertainment Series - TV Kamishibai Vol. 1 (Japan).zip

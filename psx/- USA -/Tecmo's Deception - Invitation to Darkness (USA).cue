@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tecmo's Deception - Invitation to Darkness (USA).zip

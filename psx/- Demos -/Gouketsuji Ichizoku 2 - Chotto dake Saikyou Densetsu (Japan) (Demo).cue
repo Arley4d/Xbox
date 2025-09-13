@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gouketsuji Ichizoku 2 - Chotto dake Saikyou Densetsu (Japan) (Demo).zip

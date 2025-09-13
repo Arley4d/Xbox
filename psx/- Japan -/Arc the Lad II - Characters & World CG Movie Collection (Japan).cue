@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Arc the Lad II - Characters & World CG Movie Collection (Japan).zip

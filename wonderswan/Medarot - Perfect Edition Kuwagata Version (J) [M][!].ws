@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Medarot - Perfect Edition Kuwagata Version (J) [M][!].ws

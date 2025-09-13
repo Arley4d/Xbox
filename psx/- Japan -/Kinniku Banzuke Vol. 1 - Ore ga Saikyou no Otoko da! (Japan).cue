@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kinniku Banzuke Vol. 1 - Ore ga Saikyou no Otoko da! (Japan).zip

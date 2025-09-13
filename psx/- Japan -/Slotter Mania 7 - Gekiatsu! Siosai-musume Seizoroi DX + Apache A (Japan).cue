@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania 7 - Gekiatsu! Siosai-musume Seizoroi DX + Apache A (Japan).zip

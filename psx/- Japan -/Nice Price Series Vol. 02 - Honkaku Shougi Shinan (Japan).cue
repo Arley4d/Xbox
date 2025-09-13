@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nice Price Series Vol. 02 - Honkaku Shougi Shinan (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Strip%20Poker%20-%20Marlena%20%26%20Candi%20%281982%29%28Artwork%29.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Magical Date - Doki Doki Kokuhaku Daisakusen (Japan).zip

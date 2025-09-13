@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Puyo Puyo Tsuu - Ketteiban (Japan) (Rev 1).zip

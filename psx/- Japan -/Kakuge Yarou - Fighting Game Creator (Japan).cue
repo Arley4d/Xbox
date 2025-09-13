@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kakuge Yarou - Fighting Game Creator (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Hard%20Hat%20Mack%20%281983%29%28Electronic%20Arts%29%5Bcr%20Mr.%20Krac-Man%5D%5B48K%5D.zip

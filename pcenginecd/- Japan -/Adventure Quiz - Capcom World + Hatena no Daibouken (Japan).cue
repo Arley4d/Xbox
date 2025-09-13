@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Adventure Quiz - Capcom World + Hatena no Daibouken (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nichibutsu Mahjong - Joshikou Meijinsen (Japan).zip

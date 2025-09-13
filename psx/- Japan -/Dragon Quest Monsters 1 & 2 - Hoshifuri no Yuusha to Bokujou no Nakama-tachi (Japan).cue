@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Dragon Quest Monsters 1 & 2 - Hoshifuri no Yuusha to Bokujou no Nakama-tachi (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/South%20Pacific%20Quest%20%281985%29%28Ward%2C%20Peter%29%5Bcr%20Black%20Magic%5D.zip

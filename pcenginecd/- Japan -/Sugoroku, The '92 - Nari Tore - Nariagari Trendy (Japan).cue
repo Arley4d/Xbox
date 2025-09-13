@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Sugoroku, The '92 - Nari Tore - Nariagari Trendy (Japan).zip

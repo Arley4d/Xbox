@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Zero Pilot - Gin'yoku no Senshi (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Love Game's - Wai Wai Tennis (Japan) (Service Price-ban).zip

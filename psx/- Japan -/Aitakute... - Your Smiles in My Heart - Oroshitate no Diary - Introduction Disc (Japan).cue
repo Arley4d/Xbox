@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Aitakute... - Your Smiles in My Heart - Oroshitate no Diary - Introduction Disc (Japan).zip

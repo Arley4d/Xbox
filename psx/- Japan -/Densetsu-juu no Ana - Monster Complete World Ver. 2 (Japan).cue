@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Densetsu-juu no Ana - Monster Complete World Ver. 2 (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Series Vol. 34 - The Quiz Bangumi (Japan).zip

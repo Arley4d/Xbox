@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Bakushou Yoshimoto Shinkigeki (Japan) (FABT).zip

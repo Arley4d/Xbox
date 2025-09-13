@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Miracle World - Fushigi no Kuni no IQ Meiro (Japan).zip

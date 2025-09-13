@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23232%20-%20Jewel%20of%20Yara%20%281995-06-08%29%28Purvis%2C%20Hoyle%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

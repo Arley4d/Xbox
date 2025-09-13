@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Tetsuman (J) [M][!].ws

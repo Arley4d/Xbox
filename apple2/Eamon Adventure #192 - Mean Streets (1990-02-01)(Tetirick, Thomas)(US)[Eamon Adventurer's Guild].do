@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23192%20-%20Mean%20Streets%20%281990-02-01%29%28Tetirick%2C%20Thomas%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

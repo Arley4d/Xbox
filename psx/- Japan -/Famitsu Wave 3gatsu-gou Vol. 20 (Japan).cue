@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Famitsu Wave 3gatsu-gou Vol. 20 (Japan).zip

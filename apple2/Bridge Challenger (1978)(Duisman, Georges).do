@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Bridge%20Challenger%20%281978%29%28Duisman%2C%20Georges%29.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou 6 - Kung-Fu Lady, BangBang, Prelude 2 (Japan).zip

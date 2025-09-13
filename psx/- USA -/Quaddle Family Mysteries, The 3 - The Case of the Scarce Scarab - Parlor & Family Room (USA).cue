@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Quaddle Family Mysteries, The 3 - The Case of the Scarce Scarab - Parlor & Family Room (USA).zip

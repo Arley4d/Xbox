@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Mahjong Youchien Tamago-gumi 2 - Taikai e Ikou! (Japan).zip

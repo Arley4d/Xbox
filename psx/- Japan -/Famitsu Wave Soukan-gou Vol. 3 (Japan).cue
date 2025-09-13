@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Famitsu Wave Soukan-gou Vol. 3 (Japan).zip

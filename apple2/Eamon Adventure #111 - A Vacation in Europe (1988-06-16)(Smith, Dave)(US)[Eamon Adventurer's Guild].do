@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23111%20-%20A%20Vacation%20in%20Europe%20%281988-06-16%29%28Smith%2C%20Dave%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

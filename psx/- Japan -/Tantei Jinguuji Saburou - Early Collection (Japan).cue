@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tantei Jinguuji Saburou - Early Collection (Japan).zip

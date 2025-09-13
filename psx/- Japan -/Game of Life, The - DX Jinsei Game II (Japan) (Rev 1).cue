@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Game of Life, The - DX Jinsei Game II (Japan) (Rev 1).zip

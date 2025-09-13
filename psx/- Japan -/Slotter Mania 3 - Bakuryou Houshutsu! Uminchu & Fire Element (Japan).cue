@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania 3 - Bakuryou Houshutsu! Uminchu & Fire Element (Japan).zip

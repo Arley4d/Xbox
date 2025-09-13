@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kids Station - Oja Majo DoReMi Dokkan! Maho-dou Eigo Festival (Japan) (Controller Set).zip

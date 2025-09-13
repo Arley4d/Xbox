@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Crash Bandicoot 3 - Warped (Europe, Australia) (En,Fr,De,Es,It).zip

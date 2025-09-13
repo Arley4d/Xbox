@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Zipangu-jima - Unmei wa Saikoro ga Kimeru! (Japan).zip

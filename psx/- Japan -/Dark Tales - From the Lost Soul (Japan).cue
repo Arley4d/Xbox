@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Dark Tales - From the Lost Soul (Japan).zip

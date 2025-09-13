@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Blackjack vs. Matsuda Jun (Japan).zip

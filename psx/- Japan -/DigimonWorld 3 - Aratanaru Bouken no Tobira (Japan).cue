@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/DigimonWorld 3 - Aratanaru Bouken no Tobira (Japan).zip

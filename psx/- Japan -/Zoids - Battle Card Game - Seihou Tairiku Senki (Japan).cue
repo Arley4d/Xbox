@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Zoids - Battle Card Game - Seihou Tairiku Senki (Japan).zip

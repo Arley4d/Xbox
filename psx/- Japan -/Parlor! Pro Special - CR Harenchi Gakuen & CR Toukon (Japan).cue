@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Parlor! Pro Special - CR Harenchi Gakuen & CR Toukon (Japan).zip

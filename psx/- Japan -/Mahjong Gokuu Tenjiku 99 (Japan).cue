@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Mahjong Gokuu Tenjiku 99 (Japan).zip

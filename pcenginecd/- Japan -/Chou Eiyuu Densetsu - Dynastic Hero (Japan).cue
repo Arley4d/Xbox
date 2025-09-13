@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Chou Eiyuu Densetsu - Dynastic Hero (Japan).zip

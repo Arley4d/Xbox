@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kowai Shashin - Shinrei Shashin Kitan (Japan).zip

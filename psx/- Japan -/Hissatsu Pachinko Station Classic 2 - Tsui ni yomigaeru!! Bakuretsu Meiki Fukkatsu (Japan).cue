@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station Classic 2 - Tsui ni yomigaeru!! Bakuretsu Meiki Fukkatsu (Japan).zip

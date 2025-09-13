@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Tekken Card Challenge (J) [M][!].ws

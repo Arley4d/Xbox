@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Block Kuzushi - Deden no Gyakushuu (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Doko Demo Hamster 4 - Doki Doki Sugoroku Daibouken! (Japan).zip

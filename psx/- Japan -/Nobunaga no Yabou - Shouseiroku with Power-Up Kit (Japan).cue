@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nobunaga no Yabou - Shouseiroku with Power-Up Kit (Japan).zip

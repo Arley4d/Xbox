@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Vantan Dennoh Intelligence College V-Disc - Vantan Gakkou Annai CD-ROM (Japan).zip

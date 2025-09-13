@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Shogi Touryuumon (J) [M][o1].ws

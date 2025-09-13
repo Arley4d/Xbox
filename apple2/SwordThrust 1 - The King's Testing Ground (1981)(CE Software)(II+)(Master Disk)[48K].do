@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/SwordThrust%201%20-%20The%20King%27s%20Testing%20Ground%20%281981%29%28CE%20Software%29%28II%2B%29%28Master%20Disk%29%5B48K%5D.zip

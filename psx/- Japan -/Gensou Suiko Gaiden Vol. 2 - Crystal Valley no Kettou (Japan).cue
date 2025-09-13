@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gensou Suiko Gaiden Vol. 2 - Crystal Valley no Kettou (Japan).zip

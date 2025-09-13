@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jang Jang Koi Shimashow Separate 2 - Koi Koi Shimashow (Japan).zip

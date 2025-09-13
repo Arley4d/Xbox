@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Game no Tetsujin - The Shanghai (Japan).zip

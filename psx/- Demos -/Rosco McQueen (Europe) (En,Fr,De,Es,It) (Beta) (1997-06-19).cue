@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Rosco McQueen (Europe) (En,Fr,De,Es,It) (Beta) (1997-06-19).zip

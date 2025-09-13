@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Famitsu Wave 2gatsu-gou Vol. 19 (Japan).zip

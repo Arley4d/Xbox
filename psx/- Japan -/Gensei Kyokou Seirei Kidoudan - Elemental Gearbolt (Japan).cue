@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gensei Kyokou Seirei Kidoudan - Elemental Gearbolt (Japan).zip

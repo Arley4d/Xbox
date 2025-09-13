@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23088%20-%20The%20Shopping%20Mall%20%281988-10-12%29%28Porter%2C%20Allan%29%28US%29%5Bf%20standardized%5D%5BEamon%20Adventurer%27s%20Guild%5D.zip

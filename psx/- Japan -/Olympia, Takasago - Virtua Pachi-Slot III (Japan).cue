@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Olympia, Takasago - Virtua Pachi-Slot III (Japan).zip

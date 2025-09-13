@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Yoshimoto Muchicco Dai-kessen - Minami no Umi no Gorongo-tou (Japan).zip

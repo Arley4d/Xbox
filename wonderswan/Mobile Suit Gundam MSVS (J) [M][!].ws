@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Mobile Suit Gundam MSVS (J) [M][!].ws

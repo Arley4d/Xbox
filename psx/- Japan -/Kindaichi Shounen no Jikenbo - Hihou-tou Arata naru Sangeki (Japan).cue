@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kindaichi Shounen no Jikenbo - Hihou-tou Arata naru Sangeki (Japan).zip

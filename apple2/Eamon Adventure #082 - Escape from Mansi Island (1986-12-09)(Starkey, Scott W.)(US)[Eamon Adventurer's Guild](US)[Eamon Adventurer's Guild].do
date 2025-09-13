@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23082%20-%20Escape%20from%20Mansi%20Island%20%281986-12-09%29%28Starkey%2C%20Scott%20W.%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

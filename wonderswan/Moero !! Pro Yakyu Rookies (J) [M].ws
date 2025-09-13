@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Moero !! Pro Yakyu Rookies (J) [M].ws

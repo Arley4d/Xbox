@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jikkyou Powerful Pro Yakyuu 2000 - Ketteiban (Japan).zip

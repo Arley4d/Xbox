@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Shiawase Usagi - Nureta Bishoujo - Hajimete Nanoni... (Japan) (Unl).zip

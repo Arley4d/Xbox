@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Puzzle Mania (Japan) (Major Wave).zip

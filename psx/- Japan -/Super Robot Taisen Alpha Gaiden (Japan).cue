@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Super Robot Taisen Alpha Gaiden (Japan).zip

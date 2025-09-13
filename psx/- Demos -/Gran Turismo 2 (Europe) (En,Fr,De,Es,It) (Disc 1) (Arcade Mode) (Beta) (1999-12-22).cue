@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gran Turismo 2 (Europe) (En,Fr,De,Es,It) (Disc 1) (Arcade Mode) (Beta) (1999-12-22).zip

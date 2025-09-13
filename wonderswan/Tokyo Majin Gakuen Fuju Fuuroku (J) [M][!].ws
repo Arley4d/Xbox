@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Tokyo Majin Gakuen Fuju Fuuroku (J) [M][!].ws

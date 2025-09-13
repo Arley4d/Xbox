@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bishi Bashi Special 3 - Step Champ (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Remote Control Dandy - Bangai-hen (Japan).zip

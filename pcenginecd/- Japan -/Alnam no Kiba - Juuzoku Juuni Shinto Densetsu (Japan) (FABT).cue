@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Alnam no Kiba - Juuzoku Juuni Shinto Densetsu (Japan) (FABT).zip

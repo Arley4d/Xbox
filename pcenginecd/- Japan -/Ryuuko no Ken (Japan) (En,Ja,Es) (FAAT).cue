@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Ryuuko no Ken (Japan) (En,Ja,Es) (FAAT).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/WarCraft II - The Dark Saga (Japan).zip

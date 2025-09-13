@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Dai-4-Ji Super Robot Taisen S (Japan) (Rev 1).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Honkaku Shougi - Shougi-ou (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Famitsu Wave 6gatsu-gou Vol. 11 (Japan).zip

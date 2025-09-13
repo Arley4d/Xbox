@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tales of Fandom Vol. 1 - Mint Version (Japan).zip

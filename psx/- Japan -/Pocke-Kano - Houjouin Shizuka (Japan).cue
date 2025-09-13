@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pocke-Kano - Houjouin Shizuka (Japan).zip

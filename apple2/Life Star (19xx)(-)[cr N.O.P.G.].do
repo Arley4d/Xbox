@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Life%20Star%20%2819xx%29%28-%29%5Bcr%20N.O.P.G.%5D.zip

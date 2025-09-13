@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Parlor! Pro Jr. Collection (Japan).zip

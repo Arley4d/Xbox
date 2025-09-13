@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kids Station - Asobou! Hanasou! Guru Guru Town Hanamaru-kun (Japan).zip

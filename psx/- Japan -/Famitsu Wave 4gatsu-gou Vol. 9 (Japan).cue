@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Famitsu Wave 4gatsu-gou Vol. 9 (Japan).zip

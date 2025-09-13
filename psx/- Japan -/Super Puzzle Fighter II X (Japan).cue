@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Super Puzzle Fighter II X (Japan).zip

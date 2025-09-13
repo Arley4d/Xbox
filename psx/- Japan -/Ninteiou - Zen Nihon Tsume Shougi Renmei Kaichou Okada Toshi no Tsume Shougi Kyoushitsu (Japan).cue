@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ninteiou - Zen Nihon Tsume Shougi Renmei Kaichou Okada Toshi no Tsume Shougi Kyoushitsu (Japan).zip

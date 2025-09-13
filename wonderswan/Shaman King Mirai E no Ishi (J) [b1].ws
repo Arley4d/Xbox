@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Shaman King Mirai E no Ishi (J) [b1].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Dengeki PlayStation D8 - Yarudora - Double Cast (Japan) (Taikenban).zip

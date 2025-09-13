@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Series Vol. 96 - The Yakyuu 2 - 2002 Pro Yakyuu (Japan).zip

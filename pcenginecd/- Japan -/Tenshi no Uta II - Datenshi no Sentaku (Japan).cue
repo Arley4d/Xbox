@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Tenshi no Uta II - Datenshi no Sentaku (Japan).zip

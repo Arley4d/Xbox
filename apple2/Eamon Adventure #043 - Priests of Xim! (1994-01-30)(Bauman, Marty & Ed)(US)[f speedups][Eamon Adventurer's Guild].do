@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23043%20-%20Priests%20of%20Xim%21%20%281994-01-30%29%28Bauman%2C%20Marty%20%26%20Ed%29%28US%29%5Bf%20speedups%5D%5BEamon%20Adventurer%27s%20Guild%5D.zip

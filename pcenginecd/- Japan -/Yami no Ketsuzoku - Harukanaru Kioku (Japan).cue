@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Yami no Ketsuzoku - Harukanaru Kioku (Japan).zip

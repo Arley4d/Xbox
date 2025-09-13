@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou 2 - Kagetsu, Two Pair, Beaver X (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Dokapon! Ikari no Tekken (Japan) (Rev 1).zip

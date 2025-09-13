@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Ganso Jajamaru Kun (J) [M][!].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Chou Jiryoku Senshi Microman - Generation 2000 (Japan).zip

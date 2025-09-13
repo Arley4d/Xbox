@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shinsou Kaiten!! Wan Wan Umi Monogatari - Sanyo Pachinko Paradise DX (Japan).zip

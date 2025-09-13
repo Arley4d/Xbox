@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Magical Zunou Power!! Party Selection (Japan).zip

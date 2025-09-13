@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Doko Demo Hamster - Bi! Click Tankentai (Japan).zip

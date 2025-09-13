@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Rockman 6 - Shijou Saidai no Tatakai!! (Japan).zip

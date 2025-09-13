@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Rekishi Simulation Sangokushi II (J) [M].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kaisoku Tenshi - The Rapid Angel (Japan).zip

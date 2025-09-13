@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23048%20-%20Picnic%20in%20Paradise%20%281992-02-08%29%28Nelson%2C%20John%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

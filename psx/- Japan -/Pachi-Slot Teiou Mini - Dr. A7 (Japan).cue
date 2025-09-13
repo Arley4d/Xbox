@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou Mini - Dr. A7 (Japan).zip

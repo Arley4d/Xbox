@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Rittai Ninja Katsugeki - Tenchu (Japan) (Demo).zip

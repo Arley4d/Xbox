@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Advanced%20Blackjack%20%281983%29%28MUSE%20Software%29%5Bcr%20Whip%5D.zip

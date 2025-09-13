@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Star%20Trek%20-%20The%20Kobayashi%20Alternative%20%281985%29%28Simon%20%26%20Schuster%20Interactive%29%28Disk%201%20of%202%29%5Bcr%20Gadget%20Master%20-%20Captain%20Avatar%5D.zip

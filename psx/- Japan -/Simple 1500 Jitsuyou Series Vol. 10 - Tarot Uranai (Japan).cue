@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Jitsuyou Series Vol. 10 - Tarot Uranai (Japan).zip

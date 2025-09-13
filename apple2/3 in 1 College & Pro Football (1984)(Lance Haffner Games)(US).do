@@ -1,0 +1,4 @@
+https://archive.org/download/apple-ii-games-do/3%20in%201%20College%20%26%20Pro%20Football%20%281984%29%28Lance%20Haffner%20Games%29%28US%29.zip
+https://archive.org/download/apple-ii-games-do/3%20in%201%20College%20%26%20Pro%20Football%20-%20Teams%20Disk%20-%201985%20Teams%20%2819xx%29%28-%29.zip
+https://archive.org/download/apple-ii-games-do/3%20in%201%20College%20%26%20Pro%20Football%20-%20Teams%20Disk%20-%20College%20Teams%20of%20the%20Past%20%2819xx%29%28-%29.zip
+https://archive.org/download/apple-ii-games-do/3%20in%201%20College%20%26%20Pro%20Football%20-%20Teams%20Disk%20-%20Teams%20of%20the%20Past%20%2819xx%29%28-%29.zip

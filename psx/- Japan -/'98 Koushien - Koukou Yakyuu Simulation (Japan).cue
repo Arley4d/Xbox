@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/'98 Koushien - Koukou Yakyuu Simulation (Japan).zip

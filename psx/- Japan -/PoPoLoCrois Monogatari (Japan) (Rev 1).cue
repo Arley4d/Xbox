@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/PoPoLoCrois Monogatari (Japan) (Rev 1).zip

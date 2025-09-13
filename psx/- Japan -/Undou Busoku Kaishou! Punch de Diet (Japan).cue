@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Undou Busoku Kaishou! Punch de Diet (Japan).zip

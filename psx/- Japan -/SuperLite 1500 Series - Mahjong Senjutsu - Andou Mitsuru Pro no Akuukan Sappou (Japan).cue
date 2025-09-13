@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SuperLite 1500 Series - Mahjong Senjutsu - Andou Mitsuru Pro no Akuukan Sappou (Japan).zip

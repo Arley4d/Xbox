@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Wai Wai Trump Taisen (Japan).zip

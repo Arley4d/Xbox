@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Game Guru Gold 1 (Russia) (Unl).zip

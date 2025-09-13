@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Quiz no Hoshi - Star of Quiz (Japan).zip

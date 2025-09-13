@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Olympia, Yamasa - Virtua Pachi-Slot II - Jissen! Bishoujo Kouryakuhou (Japan).zip

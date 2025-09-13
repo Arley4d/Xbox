@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Golgo 13 Vol. 1 - Carlyle no Yabou (Japan) (En,Ja).zip

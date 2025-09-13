@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bakuryuu (Japan) (Beta) (1999-11-27).zip

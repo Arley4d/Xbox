@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Final Lap 2000 (J) [M][f1].ws

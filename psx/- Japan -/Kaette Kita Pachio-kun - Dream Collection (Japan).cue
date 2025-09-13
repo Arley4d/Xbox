@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kaette Kita Pachio-kun - Dream Collection (Japan).zip

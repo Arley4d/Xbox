@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hikari no Shima - Seven Lithographs in Shining Island (Japan).zip

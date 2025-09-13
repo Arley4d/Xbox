@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Quiz Marugoto the World (Japan) (Rev 7).zip

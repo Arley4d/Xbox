@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Keiba Yosou Shien Shinkaron (J) [M][o1].ws

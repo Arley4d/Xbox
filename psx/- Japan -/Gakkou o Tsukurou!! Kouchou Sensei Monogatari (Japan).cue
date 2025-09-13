@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gakkou o Tsukurou!! Kouchou Sensei Monogatari (Japan).zip

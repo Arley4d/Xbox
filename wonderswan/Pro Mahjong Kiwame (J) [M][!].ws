@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Pro Mahjong Kiwame (J) [M][!].ws

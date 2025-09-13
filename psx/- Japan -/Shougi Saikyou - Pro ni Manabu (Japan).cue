@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shougi Saikyou - Pro ni Manabu (Japan).zip

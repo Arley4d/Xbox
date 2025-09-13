@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Choujin Gakuen - Gowcaizer (Japan).zip

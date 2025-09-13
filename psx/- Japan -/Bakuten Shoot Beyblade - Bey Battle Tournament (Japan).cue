@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bakuten Shoot Beyblade - Bey Battle Tournament (Japan).zip

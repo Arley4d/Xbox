@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Arcade Hits - Wolf Fang - Kuuga 2001 (Japan).zip

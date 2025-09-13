@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Capcom Generation - Dai-2-shuu Makai to Kishi (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/PlayStation Comic - Space Adventure Cobra - The Psychogun Vol. 2 (Japan).zip

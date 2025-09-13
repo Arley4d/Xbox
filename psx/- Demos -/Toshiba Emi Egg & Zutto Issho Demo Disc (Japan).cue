@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Toshiba Emi Egg & Zutto Issho Demo Disc (Japan).zip

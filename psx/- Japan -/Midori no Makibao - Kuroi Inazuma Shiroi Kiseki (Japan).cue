@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Midori no Makibao - Kuroi Inazuma Shiroi Kiseki (Japan).zip

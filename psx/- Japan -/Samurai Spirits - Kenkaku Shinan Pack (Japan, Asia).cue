@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Samurai Spirits - Kenkaku Shinan Pack (Japan, Asia).zip

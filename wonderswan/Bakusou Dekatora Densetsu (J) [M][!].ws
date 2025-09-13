@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Bakusou Dekatora Densetsu (J) [M][!].ws

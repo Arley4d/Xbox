@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Suikoden - Tenmei no Chikai (Japan).zip

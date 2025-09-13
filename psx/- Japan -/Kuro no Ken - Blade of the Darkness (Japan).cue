@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kuro no Ken - Blade of the Darkness (Japan).zip

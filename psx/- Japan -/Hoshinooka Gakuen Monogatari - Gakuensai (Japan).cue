@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hoshinooka Gakuen Monogatari - Gakuensai (Japan).zip

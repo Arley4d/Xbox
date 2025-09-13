@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pocket DigimonWorld - Cool & Nature Battle Disc (Japan).zip

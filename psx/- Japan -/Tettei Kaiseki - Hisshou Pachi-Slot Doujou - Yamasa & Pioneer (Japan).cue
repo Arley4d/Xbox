@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tettei Kaiseki - Hisshou Pachi-Slot Doujou - Yamasa & Pioneer (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station 8 - Kamashi no Kin-chan & Soreyuke Hama-chan (Japan).zip

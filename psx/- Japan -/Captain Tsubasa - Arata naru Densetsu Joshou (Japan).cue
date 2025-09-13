@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Captain Tsubasa - Arata naru Densetsu Joshou (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Guilty Gear (Japan) (Rev 1).zip

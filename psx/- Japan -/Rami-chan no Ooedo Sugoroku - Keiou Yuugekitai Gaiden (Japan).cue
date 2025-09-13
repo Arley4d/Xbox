@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Rami-chan no Ooedo Sugoroku - Keiou Yuugekitai Gaiden (Japan).zip

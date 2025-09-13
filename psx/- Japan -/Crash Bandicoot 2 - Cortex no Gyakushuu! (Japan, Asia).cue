@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Crash Bandicoot 2 - Cortex no Gyakushuu! (Japan, Asia).zip

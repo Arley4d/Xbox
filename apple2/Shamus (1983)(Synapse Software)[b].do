@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Shamus%20%281983%29%28Synapse%20Software%29%5Bb%5D.zip

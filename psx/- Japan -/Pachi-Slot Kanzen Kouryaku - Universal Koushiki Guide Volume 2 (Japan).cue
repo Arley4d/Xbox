@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Kanzen Kouryaku - Universal Koushiki Guide Volume 2 (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slot! Pro 7 - Hana Densetsu (Japan).zip

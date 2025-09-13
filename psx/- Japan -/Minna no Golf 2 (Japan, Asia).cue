@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Minna no Golf 2 (Japan, Asia).zip

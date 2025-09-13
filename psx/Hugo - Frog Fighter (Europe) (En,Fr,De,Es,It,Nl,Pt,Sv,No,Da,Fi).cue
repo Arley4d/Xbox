@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hugo - Frog Fighter (Europe) (En,Fr,De,Es,It,Nl,Pt,Sv,No,Da,Fi).zip

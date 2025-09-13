@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Weekly the PlayStation Limited No. 1 (Japan).zip

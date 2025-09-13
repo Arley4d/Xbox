@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Squaresoft on PlayStation 1998 Collector's CD Vol. 2 (USA) (Final Fantasy VIII Demo).zip

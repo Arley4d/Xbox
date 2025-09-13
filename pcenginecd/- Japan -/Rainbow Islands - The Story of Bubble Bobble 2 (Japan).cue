@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Rainbow Islands - The Story of Bubble Bobble 2 (Japan).zip

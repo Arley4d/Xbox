@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Fire Pro Wrestling - Iron Slam '96 (Japan).zip

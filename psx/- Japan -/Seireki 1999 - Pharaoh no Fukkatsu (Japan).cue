@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Seireki 1999 - Pharaoh no Fukkatsu (Japan).zip

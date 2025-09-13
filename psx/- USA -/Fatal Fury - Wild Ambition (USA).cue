@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Fatal Fury - Wild Ambition (USA).zip

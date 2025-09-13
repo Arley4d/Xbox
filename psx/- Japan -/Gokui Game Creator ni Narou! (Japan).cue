@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gokui Game Creator ni Narou! (Japan).zip

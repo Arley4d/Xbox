@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Click Manga - Ginga Eiyuu Densetsu 1 - Eien no Yoru no Naka de (Japan).zip

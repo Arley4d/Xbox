@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eidolon%2C%20The%20%281986%29%28Epyx%29%28II%2B%29%5Bcr%20Lot%20-%20The%20Mad%20Mechanic%5D%5B64K%5D.zip

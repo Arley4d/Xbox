@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jojo no Kimyou na Bouken (Japan) (Demo).zip

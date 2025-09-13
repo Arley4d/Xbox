@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Deco Pre 97-98 - Data East Taikenban Special (Japan).zip

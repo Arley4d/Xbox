@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Tetsujin 28 Gou (J) [M][f1].ws

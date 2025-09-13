@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Official Yarudora Fan Book - Double Cast - CD-ROM Special Data-shuu (Japan).zip

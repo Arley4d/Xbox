@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Play de Oboeru Series - Nihonshi Keyword Deruderu 1800 (Japan) (Shotenban).zip

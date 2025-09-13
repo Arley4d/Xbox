@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Eberouge Special - Koi to Mahou no Gakuen Seikatsu (Japan).zip

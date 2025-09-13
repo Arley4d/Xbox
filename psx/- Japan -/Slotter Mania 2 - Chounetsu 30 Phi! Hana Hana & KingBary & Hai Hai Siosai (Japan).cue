@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania 2 - Chounetsu 30 Phi! Hana Hana & KingBary & Hai Hai Siosai (Japan).zip

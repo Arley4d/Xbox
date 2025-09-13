@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Kanzen Kouryaku - Cranky Pro (Japan).zip

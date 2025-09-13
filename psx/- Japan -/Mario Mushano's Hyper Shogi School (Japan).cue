@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Mario Mushano's Hyper Shogi School (Japan).zip

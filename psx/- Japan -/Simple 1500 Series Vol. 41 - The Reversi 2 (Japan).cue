@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Series Vol. 41 - The Reversi 2 (Japan).zip

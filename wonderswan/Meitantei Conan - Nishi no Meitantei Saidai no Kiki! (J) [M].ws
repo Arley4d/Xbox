@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Meitantei Conan - Nishi no Meitantei Saidai no Kiki! (J) [M].ws

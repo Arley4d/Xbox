@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kellogg Original Waku Waku Doki Doki Ninki Game Chara Daishuugou! Waku Waku-shou (Japan) (Demo).zip

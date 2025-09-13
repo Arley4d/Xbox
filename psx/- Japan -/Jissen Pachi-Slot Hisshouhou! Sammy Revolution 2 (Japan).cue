@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jissen Pachi-Slot Hisshouhou! Sammy Revolution 2 (Japan).zip

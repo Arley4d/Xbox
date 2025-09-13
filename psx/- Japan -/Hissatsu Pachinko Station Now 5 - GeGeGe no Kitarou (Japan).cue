@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station Now 5 - GeGeGe no Kitarou (Japan).zip

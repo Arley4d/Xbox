@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Virtua Pachi-Slot EX (Japan).zip

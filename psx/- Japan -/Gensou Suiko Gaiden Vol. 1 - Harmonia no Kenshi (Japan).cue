@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gensou Suiko Gaiden Vol. 1 - Harmonia no Kenshi (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Cho Denki Card Battle Yofu Makai Kikuchi Shugo (J) [M][!].ws

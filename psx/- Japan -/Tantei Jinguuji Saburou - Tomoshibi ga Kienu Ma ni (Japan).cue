@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tantei Jinguuji Saburou - Tomoshibi ga Kienu Ma ni (Japan).zip

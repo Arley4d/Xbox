@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Langrisser I & II (Japan) (Shokai Gentei Special Package).zip

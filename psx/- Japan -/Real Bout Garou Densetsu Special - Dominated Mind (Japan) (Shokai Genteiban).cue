@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Real Bout Garou Densetsu Special - Dominated Mind (Japan) (Shokai Genteiban).zip

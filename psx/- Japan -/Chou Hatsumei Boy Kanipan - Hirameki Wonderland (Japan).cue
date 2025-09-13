@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Chou Hatsumei Boy Kanipan - Hirameki Wonderland (Japan).zip

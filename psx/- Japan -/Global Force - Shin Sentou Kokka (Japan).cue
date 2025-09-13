@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Global Force - Shin Sentou Kokka (Japan).zip

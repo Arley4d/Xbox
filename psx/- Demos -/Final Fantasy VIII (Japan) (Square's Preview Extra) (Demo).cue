@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Final Fantasy VIII (Japan) (Square's Preview Extra) (Demo).zip

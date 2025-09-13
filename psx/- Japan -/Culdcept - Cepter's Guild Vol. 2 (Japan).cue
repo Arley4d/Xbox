@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Culdcept - Cepter's Guild Vol. 2 (Japan).zip

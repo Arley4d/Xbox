@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Senkaiden - TV Animation Senkaiden Houshin Engi Yori (J) [M].ws

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Gorakuoh TANGO! (J) [M][f1].ws

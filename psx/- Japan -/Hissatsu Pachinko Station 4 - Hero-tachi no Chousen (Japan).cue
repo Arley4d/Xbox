@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station 4 - Hero-tachi no Chousen (Japan).zip

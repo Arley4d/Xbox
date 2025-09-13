@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Super Robot Taisen Compact 2 - Dai Ichibu - Chijou Gekidou Hen (J) [M].ws

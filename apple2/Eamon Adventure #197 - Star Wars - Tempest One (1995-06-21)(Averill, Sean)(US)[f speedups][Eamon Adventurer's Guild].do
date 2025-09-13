@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23197%20-%20Star%20Wars%20-%20Tempest%20One%20%281995-06-21%29%28Averill%2C%20Sean%29%28US%29%5Bf%20speedups%5D%5BEamon%20Adventurer%27s%20Guild%5D.zip

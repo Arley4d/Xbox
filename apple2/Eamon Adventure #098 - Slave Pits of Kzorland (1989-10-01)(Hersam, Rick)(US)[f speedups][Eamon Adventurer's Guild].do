@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23098%20-%20Slave%20Pits%20of%20Kzorland%20%281989-10-01%29%28Hersam%2C%20Rick%29%28US%29%5Bf%20speedups%5D%5BEamon%20Adventurer%27s%20Guild%5D.zip

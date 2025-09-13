@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Tare Pan no Gunpei (J) [M][f2].ws

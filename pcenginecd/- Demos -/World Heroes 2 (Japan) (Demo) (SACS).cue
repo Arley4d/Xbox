@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/World Heroes 2 (Japan) (Demo) (SACS).zip

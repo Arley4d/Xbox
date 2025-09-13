@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Baseball - Pro-nami Kusayakyuu! (Japan).zip

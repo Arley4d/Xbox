@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station 10 - EX Jack 2000 & Super Dragon (Japan).zip

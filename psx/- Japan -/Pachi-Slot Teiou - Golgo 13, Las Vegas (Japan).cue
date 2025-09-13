@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou - Golgo 13, Las Vegas (Japan).zip

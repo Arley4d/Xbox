@@ -1,0 +1,3 @@
+https://archive.org/download/apple-ii-games-do/Timeship%20%281984%29%28Five%20Star%20Software%29%28Disk%201%20of%203%29%28Boot%29%5Bcr%20The%20Bushwhacker%20-%20The%20Snowman%5D.zip
+https://archive.org/download/apple-ii-games-do/Timeship%20%281984%29%28Five%20Star%20Software%29%28Disk%202%20of%203%29%28Player%29%5Bcr%20The%20Bushwhacker%20-%20The%20Snowman%5D.zip
+https://archive.org/download/apple-ii-games-do/Timeship%20%281984%29%28Five%20Star%20Software%29%28Disk%203%20of%203%29%28Time%20Capsule%29%5Bcr%20The%20Bushwhacker%20-%20The%20Snowman%5D%5Bb%5D.zip

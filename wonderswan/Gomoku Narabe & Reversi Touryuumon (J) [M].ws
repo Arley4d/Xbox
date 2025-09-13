@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Gomoku Narabe & Reversi Touryuumon (J) [M].ws

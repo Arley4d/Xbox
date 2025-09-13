@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Kakuto Ryori Densetsu Bistro Recipe - Wonder Battle Hen (J) [M].ws

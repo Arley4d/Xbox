@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ganbare Morikawa-kun 2-gou (Japan) (Genteiban).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Uchuu Senkan Yamato - Haruka naru Hoshi Iscandar (Japan).zip

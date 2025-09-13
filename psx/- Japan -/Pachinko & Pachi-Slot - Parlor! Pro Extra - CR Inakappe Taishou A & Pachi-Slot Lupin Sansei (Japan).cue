@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachinko & Pachi-Slot - Parlor! Pro Extra - CR Inakappe Taishou A & Pachi-Slot Lupin Sansei (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Ginga Ojousama Densetsu Yuna 2 - Eien no Princess (Japan) (FAAT).zip

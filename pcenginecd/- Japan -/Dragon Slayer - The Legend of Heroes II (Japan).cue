@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Dragon Slayer - The Legend of Heroes II (Japan).zip

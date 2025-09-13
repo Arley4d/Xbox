@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/R4 - Ridge Racer Type 4 (Japan, Asia).zip

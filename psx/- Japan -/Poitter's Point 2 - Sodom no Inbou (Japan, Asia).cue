@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Poitter's Point 2 - Sodom no Inbou (Japan, Asia).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Click Manga - Dynamic Robot Taisen 2 - Kyoufu! Akuma Zoku Fukkatsu (Japan).zip

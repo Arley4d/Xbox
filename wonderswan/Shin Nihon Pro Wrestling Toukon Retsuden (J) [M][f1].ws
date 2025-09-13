@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Shin Nihon Pro Wrestling Toukon Retsuden (J) [M][f1].ws

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Super Robot Taisen Compact 2 - Dai Sanbu - Ginga Kessen Hen (J) [M].ws

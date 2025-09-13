@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bakusou Kyoudai Let's & Go!! Eternal Wings (Japan).zip

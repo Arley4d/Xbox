@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Snoggle%20%281981-06-30%29%28Br%C3%B8derbund%29%5Bcr%20Sowbug%5D%5B48K%5D.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Legend of Legaia (USA) (Beta) (1998-11-16).zip

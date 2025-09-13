@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Star%20Warrior%20%281981%29%28Automated%20Simulations%29%5B48K%5D%5Breq%2013-sector%20drive%5D.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Golgo 13 Vol. 2 - Mienai Guntai (Japan) (En,Ja).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Puzzle Bobble (J) [M][f1].ws

@@ -1,0 +1,4 @@
+https://archive.org/download/apple-ii-games-do/Ultima%20IV%20-%20Quest%20of%20the%20Avatar%20%281985%29%28Origin%20Systems%29%28II%2B%29%28Disk%201%20of%204%29%5Bcr%20Digital%20Gang%5D%5B64K%5D.zip
+https://archive.org/download/apple-ii-games-do/Ultima%20IV%20-%20Quest%20of%20the%20Avatar%20%281985%29%28Origin%20Systems%29%28II%2B%29%28Disk%202%20of%204%29%28Britannia%29%5Bcr%20Digital%20Gang%5D%5B64K%5D.zip
+https://archive.org/download/apple-ii-games-do/Ultima%20IV%20-%20Quest%20of%20the%20Avatar%20%281985%29%28Origin%20Systems%29%28II%2B%29%28Disk%203%20of%204%29%28Dungeon%29%5Bcr%20Digital%20Gang%5D%5B64K%5D.zip
+https://archive.org/download/apple-ii-games-do/Ultima%20IV%20-%20Quest%20of%20the%20Avatar%20%281985%29%28Origin%20Systems%29%28II%2B%29%28Disk%204%20of%204%29%28Towne%29%5B64K%5D.zip

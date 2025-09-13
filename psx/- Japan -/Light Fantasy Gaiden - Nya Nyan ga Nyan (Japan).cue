@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Light Fantasy Gaiden - Nya Nyan ga Nyan (Japan).zip

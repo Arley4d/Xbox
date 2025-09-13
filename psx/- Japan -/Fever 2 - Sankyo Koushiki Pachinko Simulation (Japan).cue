@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Fever 2 - Sankyo Koushiki Pachinko Simulation (Japan).zip

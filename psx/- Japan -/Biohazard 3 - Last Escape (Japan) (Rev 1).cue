@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Biohazard 3 - Last Escape (Japan) (Rev 1).zip

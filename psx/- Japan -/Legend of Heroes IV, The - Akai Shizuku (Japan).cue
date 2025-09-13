@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Legend of Heroes IV, The - Akai Shizuku (Japan).zip

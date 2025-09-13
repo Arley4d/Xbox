@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple Character 2000 Series Vol. 02 - Afro-ken - The Puzzle (Japan).zip

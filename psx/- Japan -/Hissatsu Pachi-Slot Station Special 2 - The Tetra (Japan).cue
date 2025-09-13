@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachi-Slot Station Special 2 - The Tetra (Japan).zip

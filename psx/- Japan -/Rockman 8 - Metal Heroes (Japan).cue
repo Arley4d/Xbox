@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Rockman 8 - Metal Heroes (Japan).zip

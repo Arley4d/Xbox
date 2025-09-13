@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Uchuu Senkan Yamato - Eiyuu no Kiseki (Japan).zip

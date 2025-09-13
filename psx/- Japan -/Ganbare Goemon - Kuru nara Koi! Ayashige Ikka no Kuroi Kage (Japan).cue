@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ganbare Goemon - Kuru nara Koi! Ayashige Ikka no Kuroi Kage (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Kanzen Kaiseki - Wai Wai Pulsar 2 & 77 2 (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/PlayStation Kiosk Demo Disc Version 1.16 (USA).zip

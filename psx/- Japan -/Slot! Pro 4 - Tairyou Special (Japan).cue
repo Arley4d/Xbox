@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slot! Pro 4 - Tairyou Special (Japan).zip

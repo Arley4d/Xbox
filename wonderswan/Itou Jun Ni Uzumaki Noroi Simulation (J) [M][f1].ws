@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Itou Jun Ni Uzumaki Noroi Simulation (J) [M][f1].ws

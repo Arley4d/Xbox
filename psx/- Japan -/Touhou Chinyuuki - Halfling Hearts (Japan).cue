@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Touhou Chinyuuki - Halfling Hearts (Japan).zip

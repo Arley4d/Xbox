@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/DigiCro - Digital Number Crossword (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou - Shimauta-30, Twist, Nangoku Monogatari-30 (Japan).zip

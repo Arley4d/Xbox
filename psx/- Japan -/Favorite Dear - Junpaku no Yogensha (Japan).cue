@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Favorite Dear - Junpaku no Yogensha (Japan).zip

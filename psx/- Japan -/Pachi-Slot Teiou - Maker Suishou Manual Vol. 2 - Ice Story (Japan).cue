@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou - Maker Suishou Manual Vol. 2 - Ice Story (Japan).zip

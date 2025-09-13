@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Crazy%20Maczy%20%2819xx%29%28-%29.zip

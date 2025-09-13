@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slot! Pro 2 - Bakuretsu Oozumou Aka & Murasaki (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23157%20-%20Pathetic%20Hideout%20of%20Mr.%20Roessler%20%281988-10-11%29%28Segerlind%2C%20Nathan%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

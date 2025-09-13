@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Battle Athletess - Daiundoukai GTO (Grand Trial Onnanoco) (Japan) (Major Wave).zip

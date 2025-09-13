@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Wizardry Empire - Inishie no Oujo (Japan).zip

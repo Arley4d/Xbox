@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gotouchi Hello Kitty Sugoroku Monogatari (Japan).zip

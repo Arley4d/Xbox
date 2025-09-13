@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Kaze no Klonoa - Moonlight Museum (J) [M][t1].ws

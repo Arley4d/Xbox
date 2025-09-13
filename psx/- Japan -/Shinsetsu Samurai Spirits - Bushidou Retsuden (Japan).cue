@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shinsetsu Samurai Spirits - Bushidou Retsuden (Japan).zip

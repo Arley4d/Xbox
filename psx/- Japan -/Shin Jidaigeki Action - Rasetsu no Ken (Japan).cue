@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shin Jidaigeki Action - Rasetsu no Ken (Japan).zip

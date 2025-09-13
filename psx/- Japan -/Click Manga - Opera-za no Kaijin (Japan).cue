@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Click Manga - Opera-za no Kaijin (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slot! Pro 8 - Shimamusume 30 & Hana Densetsu 25 (Japan).zip

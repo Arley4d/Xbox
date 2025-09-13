@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Mamono Hunter Youko - Makai kara no Tenkousei (Japan).zip

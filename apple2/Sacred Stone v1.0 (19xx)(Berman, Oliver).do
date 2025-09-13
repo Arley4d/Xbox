@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Sacred%20Stone%20v1.0%20%2819xx%29%28Berman%2C%20Oliver%29.zip

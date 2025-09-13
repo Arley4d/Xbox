@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/High%20Resolution%20Othello%20%2819xx%29%28Hilger%2C%20Jim%29.zip

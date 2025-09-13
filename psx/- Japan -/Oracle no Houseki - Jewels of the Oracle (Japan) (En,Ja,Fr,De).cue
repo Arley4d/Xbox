@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Oracle no Houseki - Jewels of the Oracle (Japan) (En,Ja,Fr,De).zip

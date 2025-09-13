@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Money Idol Exchanger (Japan) (Rev 1).zip

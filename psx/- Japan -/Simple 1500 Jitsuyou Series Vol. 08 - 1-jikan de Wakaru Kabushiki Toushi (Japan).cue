@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Jitsuyou Series Vol. 08 - 1-jikan de Wakaru Kabushiki Toushi (Japan).zip

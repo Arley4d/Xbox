@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Digital Ehon Vol. 2 - Imadoki no Kaguya-hime (Japan).zip

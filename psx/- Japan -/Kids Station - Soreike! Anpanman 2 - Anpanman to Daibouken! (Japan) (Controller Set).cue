@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kids Station - Soreike! Anpanman 2 - Anpanman to Daibouken! (Japan) (Controller Set).zip

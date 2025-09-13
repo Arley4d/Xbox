@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Kaze no Densetsu Xanadu (Japan) (Demo).zip

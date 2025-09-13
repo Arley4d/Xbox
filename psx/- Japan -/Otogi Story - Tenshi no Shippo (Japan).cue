@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Otogi Story - Tenshi no Shippo (Japan).zip

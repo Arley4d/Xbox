@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Seiya Monogatari - Anearth Fantasy Stories (Japan) (Demo).zip

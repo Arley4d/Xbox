@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shin Megami Tensei - Devil Children - Kuro no Sho, Aka no Sho (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hugo - The Quest for the Sunstones (Europe) (Fr,Nl,Pl).zip

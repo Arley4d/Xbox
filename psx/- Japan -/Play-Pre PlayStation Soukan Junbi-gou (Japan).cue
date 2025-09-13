@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Play-Pre PlayStation Soukan Junbi-gou (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Yoi Ko to Yoi Otona no. PlayStation Taikenban Vol. 2 (Japan).zip

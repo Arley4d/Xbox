@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Capcom Generation - Dai-3-shuu Koko ni Rekishi Hajimaru (Japan).zip

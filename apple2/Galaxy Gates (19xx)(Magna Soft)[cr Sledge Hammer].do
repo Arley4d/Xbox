@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Galaxy%20Gates%20%2819xx%29%28Magna%20Soft%29%5Bcr%20Sledge%20Hammer%5D.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SuperLite 3in1 Series - Quiz-shuu (Japan).zip

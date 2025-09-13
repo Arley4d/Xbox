@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachinko Teiou - CR Sore Ute Hama-chan 2 & CR Sore Yuke Matchan S (Japan).zip

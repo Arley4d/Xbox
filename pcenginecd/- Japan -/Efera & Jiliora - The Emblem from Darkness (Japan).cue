@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Efera & Jiliora - The Emblem from Darkness (Japan).zip

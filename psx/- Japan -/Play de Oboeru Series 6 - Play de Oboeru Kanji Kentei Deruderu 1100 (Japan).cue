@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Play de Oboeru Series 6 - Play de Oboeru Kanji Kentei Deruderu 1100 (Japan).zip

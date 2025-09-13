@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Super%20Stellar%20Trek%20%2819xx%29%28-%29%5Bcr%20Copycatter%20-%20Squid%5D.zip

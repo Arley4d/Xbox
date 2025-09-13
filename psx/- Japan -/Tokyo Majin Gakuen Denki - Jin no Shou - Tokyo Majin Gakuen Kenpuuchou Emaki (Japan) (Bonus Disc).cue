@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tokyo Majin Gakuen Denki - Jin no Shou - Tokyo Majin Gakuen Kenpuuchou Emaki (Japan) (Bonus Disc).zip

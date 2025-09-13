@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachi-Slot Station SP - Yamasa Best Choice (Japan).zip

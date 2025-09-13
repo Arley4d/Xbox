@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Doubutsu Chara Navi Uranai 2 - Kosei Shinrigaku + Ren'ai Uranai Puzzle (Japan).zip

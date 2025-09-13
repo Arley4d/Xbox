@@ -1,0 +1,1 @@
+https://archive.org/download/philips_cd-i/Interactive Screen English Series No. 27 - Platoon (Korea) (En,Ko) (Side 2).zip

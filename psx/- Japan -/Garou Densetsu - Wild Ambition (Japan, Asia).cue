@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Garou Densetsu - Wild Ambition (Japan, Asia).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/PS One Winter 03 Kiosk Version 1.21 (USA).zip

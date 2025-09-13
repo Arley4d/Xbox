@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ninja Jajamaru-kun - Onigiri Ninpouchou (Japan).zip

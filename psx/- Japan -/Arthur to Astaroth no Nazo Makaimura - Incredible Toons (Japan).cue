@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Arthur to Astaroth no Nazo Makaimura - Incredible Toons (Japan).zip

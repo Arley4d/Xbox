@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Psychic Detective Series Vol. 3 - Aya (Japan) (Demo).zip

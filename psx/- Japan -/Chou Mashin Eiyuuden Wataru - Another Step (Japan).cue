@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Chou Mashin Eiyuuden Wataru - Another Step (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Densetsu no Ogre Battle (Japan).zip

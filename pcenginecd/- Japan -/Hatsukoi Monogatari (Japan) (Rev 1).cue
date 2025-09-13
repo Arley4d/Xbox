@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Hatsukoi Monogatari (Japan) (Rev 1).zip

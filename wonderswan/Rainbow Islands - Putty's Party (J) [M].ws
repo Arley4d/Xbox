@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Rainbow Islands - Putty's Party (J) [M].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Mahou Shoujo Fancy CoCo (Japan).zip

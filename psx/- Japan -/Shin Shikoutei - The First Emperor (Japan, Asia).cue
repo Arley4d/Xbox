@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shin Shikoutei - The First Emperor (Japan, Asia).zip

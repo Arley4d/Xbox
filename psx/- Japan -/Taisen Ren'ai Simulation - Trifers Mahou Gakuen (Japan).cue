@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Taisen Ren'ai Simulation - Trifers Mahou Gakuen (Japan).zip

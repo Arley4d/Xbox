@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ginga Ojousama Densetsu Yuna - Final Edition (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tokyo Game Show '98 Autumn - Sunsoft Shinsaku Title Taikenban (Japan).zip

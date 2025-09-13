@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bakushou!! All Yoshimoto Quiz-ou Kettei-sen DX (Japan).zip

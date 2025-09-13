@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jikkyou Powerful Pro Yakyuu '98 - Kaimakuban (Japan) (Rev 1).zip

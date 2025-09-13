@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sony Computer Entertainment Hyper Fan Book (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Biohazard 2 (Japan) (Beta) (1997-10-31) (Unl).zip

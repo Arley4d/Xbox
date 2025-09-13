@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nippon Ichi Mahjong - Souryuu (Japan) (Major Wave).zip

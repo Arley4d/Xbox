@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Cross Tantei Monogatari 1 - Kouhen (Japan).zip

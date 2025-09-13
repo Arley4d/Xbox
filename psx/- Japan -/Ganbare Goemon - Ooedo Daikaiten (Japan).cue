@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ganbare Goemon - Ooedo Daikaiten (Japan).zip

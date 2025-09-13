@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pocket DigimonWorld - Wind Battle Disc (Japan).zip

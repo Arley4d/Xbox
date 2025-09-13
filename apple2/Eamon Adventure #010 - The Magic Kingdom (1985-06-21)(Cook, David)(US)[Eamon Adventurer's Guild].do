@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23010%20-%20The%20Magic%20Kingdom%20%281985-06-21%29%28Cook%2C%20David%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

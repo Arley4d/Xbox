@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Legend of Heroes I & II, The - Eiyuu Densetsu (Japan).zip

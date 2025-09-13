@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sister Princess 2 - Premium Fan Disc (Japan) (Disc A).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Doki Doki Shutter Chance - Koi no Puzzle o Kumitatete (Japan) (Major Wave).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Murakoshi Seikai no Bakuchou Nihon Rettou 2 (Japan).zip

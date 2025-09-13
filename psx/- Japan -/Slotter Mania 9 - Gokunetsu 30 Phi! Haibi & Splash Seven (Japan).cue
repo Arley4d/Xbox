@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania 9 - Gokunetsu 30 Phi! Haibi & Splash Seven (Japan).zip

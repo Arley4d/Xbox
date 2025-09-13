@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Stakes Winner 2 - Saikyouba Densetsu (Japan).zip

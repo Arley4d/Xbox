@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tanaka Torahiko no Ultra-ryuu Shougi - Ibisha Anaguma-hen (Japan).zip

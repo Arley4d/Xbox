@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/D's Garage 21 Koubo Game - Tane wo Maku Tori (J) [M][f1].ws

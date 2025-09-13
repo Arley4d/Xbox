@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania 8 - Miwaku no Takarabako! Jewel Magic 2 & Gold & Silver (Japan).zip

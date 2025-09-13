@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/PoPoLoCrois Monogatari Official Fan Book - PoPoRoGue no Daizukan - Chotto Ureshii CD-ROM Data-shuu (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Hanafuda Shiyou Yo (J) [M][o1].ws

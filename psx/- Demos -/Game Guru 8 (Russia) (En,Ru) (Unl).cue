@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Game Guru 8 (Russia) (En,Ru) (Unl).zip

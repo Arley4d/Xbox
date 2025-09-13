@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Chou Aniki - Kyuukyoku Muteki Ginga Saikyou Otoko - Shotaiken Manual CD-ROM (Japan).zip

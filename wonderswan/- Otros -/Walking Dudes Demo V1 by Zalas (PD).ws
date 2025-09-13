@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Walking Dudes Demo V1 by Zalas (PD).ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jikuu Tantei DD - Maboroshi no Lorelei (Japan) (Demo).zip

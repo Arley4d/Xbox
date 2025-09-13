@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Burai - Yatsudama no Yuushi Densetsu (Japan).zip

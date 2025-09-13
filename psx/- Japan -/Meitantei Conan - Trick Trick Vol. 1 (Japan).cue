@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Meitantei Conan - Trick Trick Vol. 1 (Japan).zip

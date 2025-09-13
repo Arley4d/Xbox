@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Daikoukai Jidai Gaiden (Japan) (Rev 1).zip

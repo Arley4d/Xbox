@@ -1,0 +1,1 @@
+https://archive.org/download/philips_cd-i/Interactive Screen English Series No. 49 - Gulliver's Travels (Korea) (En,Ko) (Side 2).zip

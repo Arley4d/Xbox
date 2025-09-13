@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Yamasa Digi Guide - M771 (Japan).zip

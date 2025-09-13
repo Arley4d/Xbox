@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/WonderSwan Register Diagnostic by Zalas (PD).ws

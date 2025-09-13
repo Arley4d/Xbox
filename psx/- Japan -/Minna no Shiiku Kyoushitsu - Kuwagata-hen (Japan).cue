@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Minna no Shiiku Kyoushitsu - Kuwagata-hen (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Curiosity Kills the Cat Koukishin wa Neko o Korosu ka (Japan).zip

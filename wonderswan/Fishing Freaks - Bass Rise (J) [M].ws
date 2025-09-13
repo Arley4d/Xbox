@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Fishing Freaks - Bass Rise (J) [M].ws

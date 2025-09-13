@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pro Mahjong Tsuwamono Series - Joryuu Janshi ni Chousen - Watashi-tachi ni Chousen Shite ne! (Japan).zip

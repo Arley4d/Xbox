@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23095%20-%20The%20Maze%20of%20Quasequeton%20%281994-01-16%29%28Kondalski%2C%20Brian%29%28US%29%5Bf%20speedups%20TJZ%5D%5BEamon%20Adventurer%27s%20Guild%5D.zip

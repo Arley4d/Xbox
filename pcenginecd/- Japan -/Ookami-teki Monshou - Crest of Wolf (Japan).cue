@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Ookami-teki Monshou - Crest of Wolf (Japan).zip

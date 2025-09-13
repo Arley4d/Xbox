@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple Character 2000 Series Vol. 08 - Kagaku Ninja-tai Gatchaman - The Shooting (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Quest of Jongmaster - Janshin Densetsu (Japan).zip

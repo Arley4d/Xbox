@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Laser Soft Visual Collection Vol. 2 - Valis Visual-shuu (Japan).zip

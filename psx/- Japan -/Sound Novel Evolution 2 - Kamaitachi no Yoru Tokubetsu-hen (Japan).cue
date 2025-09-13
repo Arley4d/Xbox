@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sound Novel Evolution 2 - Kamaitachi no Yoru Tokubetsu-hen (Japan).zip

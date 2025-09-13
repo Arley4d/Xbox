@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Battle Shanghai - Dragon's Eye ~ Shanghai III - Dragon's Eye (Japan).zip

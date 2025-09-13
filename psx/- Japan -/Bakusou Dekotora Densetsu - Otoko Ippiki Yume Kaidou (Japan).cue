@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bakusou Dekotora Densetsu - Otoko Ippiki Yume Kaidou (Japan).zip

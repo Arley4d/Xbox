@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/PSY-Q Debugging Station Boot Disk V2-00 (Europe).zip

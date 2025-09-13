@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jikki Pachi-Slot Tettei Kouryaku - Speed-CR Kinkakuji 3 (Japan).zip

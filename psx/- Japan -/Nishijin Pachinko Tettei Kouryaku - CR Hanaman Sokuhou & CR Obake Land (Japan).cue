@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nishijin Pachinko Tettei Kouryaku - CR Hanaman Sokuhou & CR Obake Land (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Arc the Lad (Japan) (Rev 1).zip

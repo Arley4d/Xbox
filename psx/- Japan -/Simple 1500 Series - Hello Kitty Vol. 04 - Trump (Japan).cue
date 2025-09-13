@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Series - Hello Kitty Vol. 04 - Trump (Japan).zip

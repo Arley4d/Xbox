@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Naniwa no Akindo - Futte Nanbo no Saikoro Jinsei (Japan).zip

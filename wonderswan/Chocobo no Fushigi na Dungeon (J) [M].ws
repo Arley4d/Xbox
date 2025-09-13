@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Chocobo no Fushigi na Dungeon (J) [M].ws

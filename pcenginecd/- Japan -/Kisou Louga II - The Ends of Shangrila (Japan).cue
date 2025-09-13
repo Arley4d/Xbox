@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Kisou Louga II - The Ends of Shangrila (Japan).zip

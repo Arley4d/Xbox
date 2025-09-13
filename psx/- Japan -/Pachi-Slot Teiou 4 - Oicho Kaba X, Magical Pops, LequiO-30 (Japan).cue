@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou 4 - Oicho Kaba X, Magical Pops, LequiO-30 (Japan).zip

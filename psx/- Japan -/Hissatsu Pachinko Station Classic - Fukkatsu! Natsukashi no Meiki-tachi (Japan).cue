@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station Classic - Fukkatsu! Natsukashi no Meiki-tachi (Japan).zip

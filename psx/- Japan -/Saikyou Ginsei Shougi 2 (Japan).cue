@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Saikyou Ginsei Shougi 2 (Japan).zip

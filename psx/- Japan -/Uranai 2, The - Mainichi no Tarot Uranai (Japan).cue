@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Uranai 2, The - Mainichi no Tarot Uranai (Japan).zip

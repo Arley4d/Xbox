@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Mugen Senshi Valis - The Legend of a Fantasm Soldier (Japan).zip

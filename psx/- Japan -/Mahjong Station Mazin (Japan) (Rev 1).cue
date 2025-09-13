@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Mahjong Station Mazin (Japan) (Rev 1).zip

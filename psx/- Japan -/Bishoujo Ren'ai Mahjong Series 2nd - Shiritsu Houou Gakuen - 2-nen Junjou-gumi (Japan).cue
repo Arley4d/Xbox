@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bishoujo Ren'ai Mahjong Series 2nd - Shiritsu Houou Gakuen - 2-nen Junjou-gumi (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Fushigi no Umi no Nadia - The Secret of Blue Water (Japan).zip

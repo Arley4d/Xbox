@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Calc-Man%20v1.3%20%281982%29%28Tobias%2C%20Dan%29%5BSoftdisk%20Magazette%5D.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Battle Arena Toushinden 2 Plus (Japan).zip

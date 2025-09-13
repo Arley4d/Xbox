@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Soccer Yarou! - Challenge the World (J) [M][a1].ws

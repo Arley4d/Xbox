@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Series Vol. 74 - The Horror Mystery - Sangeki-kan - Kevin Hakushaku no Fukkatsu (Japan).zip

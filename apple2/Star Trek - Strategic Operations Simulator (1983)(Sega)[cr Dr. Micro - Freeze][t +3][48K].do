@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Star%20Trek%20-%20Strategic%20Operations%20Simulator%20%281983%29%28Sega%29%5Bcr%20Dr.%20Micro%20-%20Freeze%5D%5Bt%20%2B3%5D%5B48K%5D.zip

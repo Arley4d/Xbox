@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/GunPey (J) [M][f1].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hokuto no Ken - Seikimatsu Kyuuseishu Densetsu (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SuperLite 1500 Series - Battle Sugoroku the Hunter - A.R.0062 (Japan).zip

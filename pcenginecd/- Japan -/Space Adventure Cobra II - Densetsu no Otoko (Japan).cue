@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Space Adventure Cobra II - Densetsu no Otoko (Japan).zip

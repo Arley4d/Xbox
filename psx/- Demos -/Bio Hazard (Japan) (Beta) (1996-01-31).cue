@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bio Hazard (Japan) (Beta) (1996-01-31).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Gemstone%20Warrior%20%281984%29%28SSI%29%28II%2B%29%5Bcr%20Midwest%20Pirates%20Guild%5D.zip

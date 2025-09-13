@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Fushigi na Data Disc 2 (Japan, Asia).zip

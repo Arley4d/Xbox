@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Str.at.e.s. 7 - Riddle Roundup! (USA).zip

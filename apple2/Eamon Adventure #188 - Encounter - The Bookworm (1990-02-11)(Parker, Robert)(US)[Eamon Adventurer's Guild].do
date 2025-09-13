@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23188%20-%20Encounter%20-%20The%20Bookworm%20%281990-02-11%29%28Parker%2C%20Robert%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

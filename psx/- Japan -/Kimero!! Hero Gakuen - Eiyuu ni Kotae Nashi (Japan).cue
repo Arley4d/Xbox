@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kimero!! Hero Gakuen - Eiyuu ni Kotae Nashi (Japan).zip

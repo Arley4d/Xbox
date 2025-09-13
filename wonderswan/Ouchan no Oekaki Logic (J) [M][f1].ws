@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Ouchan no Oekaki Logic (J) [M][f1].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Parasite Eve - Special CD-ROM (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shin Sedai Robot Senki - Brave Saga (Japan).zip

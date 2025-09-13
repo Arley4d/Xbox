@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Straight Victory - Hoshino Kazuyoshi e no Chousen (Japan).zip

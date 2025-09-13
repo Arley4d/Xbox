@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Aoki Ookami to Shiroki Mejika - Genchou Hishi (Japan).zip

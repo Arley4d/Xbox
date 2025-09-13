@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Daibouken Deluxe - Haruka naru Umi (Japan).zip

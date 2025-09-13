@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Naniwa Kinyuudou - Aoki Yuji no Seken Munazanyou (Japan).zip

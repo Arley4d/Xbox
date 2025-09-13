@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Setup Utility for DTL-H1500 (Version 1.1) (Japan) (En,Ja).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kyoro-chan no Prikura Daisakusen (Japan).zip

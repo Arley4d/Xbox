@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Aruze Oukoku 7 (Japan) (Disc 2) (4th Reel Disc).zip

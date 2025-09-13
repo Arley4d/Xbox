@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tales of Destiny (Japan) (Rev 1).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gokuu Densetsu - Magic Beast Warriors (Japan).zip

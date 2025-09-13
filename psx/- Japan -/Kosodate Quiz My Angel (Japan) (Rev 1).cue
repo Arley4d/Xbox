@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kosodate Quiz My Angel (Japan) (Rev 1).zip

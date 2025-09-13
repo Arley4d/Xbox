@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi Slot Teiou - Big Wave, Pika Gorou, BB Junky 7 (Japan).zip

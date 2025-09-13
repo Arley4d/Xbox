@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Uchuu Seibutsu Flopon-kun P! (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Cosmic Fantasy - Bouken Shounen Yuu (Japan) (Alt 2).zip

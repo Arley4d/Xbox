@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Blend x Brand - Odekake Gousei RPG (Japan).zip

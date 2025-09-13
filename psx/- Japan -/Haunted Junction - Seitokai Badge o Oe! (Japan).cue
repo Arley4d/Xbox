@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Haunted Junction - Seitokai Badge o Oe! (Japan).zip

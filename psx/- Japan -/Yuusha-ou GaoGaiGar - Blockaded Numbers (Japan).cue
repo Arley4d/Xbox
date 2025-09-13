@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Yuusha-ou GaoGaiGar - Blockaded Numbers (Japan).zip

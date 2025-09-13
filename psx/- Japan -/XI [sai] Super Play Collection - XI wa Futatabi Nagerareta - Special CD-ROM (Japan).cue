@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/XI [sai] Super Play Collection - XI wa Futatabi Nagerareta - Special CD-ROM (Japan).zip

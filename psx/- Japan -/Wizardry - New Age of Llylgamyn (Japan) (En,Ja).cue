@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Wizardry - New Age of Llylgamyn (Japan) (En,Ja).zip

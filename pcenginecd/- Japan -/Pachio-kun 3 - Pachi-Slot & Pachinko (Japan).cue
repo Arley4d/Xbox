@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Pachio-kun 3 - Pachi-Slot & Pachinko (Japan).zip

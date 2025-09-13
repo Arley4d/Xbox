@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kogepan - Pan mo Game o Yarurashii... (Japan).zip

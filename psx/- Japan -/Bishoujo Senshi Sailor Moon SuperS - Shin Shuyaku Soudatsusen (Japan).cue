@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bishoujo Senshi Sailor Moon SuperS - Shin Shuyaku Soudatsusen (Japan).zip

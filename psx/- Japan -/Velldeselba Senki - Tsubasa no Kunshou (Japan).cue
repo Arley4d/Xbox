@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Velldeselba Senki - Tsubasa no Kunshou (Japan).zip

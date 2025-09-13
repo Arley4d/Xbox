@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23152%20-%20The%20Computer%20Club%20of%20Fear%20%281989-10-19%29%28Segerlind%2C%20Nathan%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

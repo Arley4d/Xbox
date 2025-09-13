@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Shinsetsu Shiawase Usagi 2 - Kairaku e no Invitation (Japan) (Unl).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Metal Slug - Super Vehicle-001 (Japan, Asia).zip

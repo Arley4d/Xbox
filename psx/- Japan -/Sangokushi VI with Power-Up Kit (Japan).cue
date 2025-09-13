@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sangokushi VI with Power-Up Kit (Japan).zip

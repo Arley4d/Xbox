@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/EGWord Ver 2.00 (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Official U.S. PlayStation Magazine Demo Disc 28 (USA).zip

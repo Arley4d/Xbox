@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Legend of Heroes III, The - Shiroki Majo - Mou Hitotsu no Eiyuu-tachi no Monogatari (Japan).zip

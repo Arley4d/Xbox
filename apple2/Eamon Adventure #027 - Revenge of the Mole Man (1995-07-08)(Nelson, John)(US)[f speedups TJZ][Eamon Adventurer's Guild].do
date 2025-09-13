@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23027%20-%20Revenge%20of%20the%20Mole%20Man%20%281995-07-08%29%28Nelson%2C%20John%29%28US%29%5Bf%20speedups%20TJZ%5D%5BEamon%20Adventurer%27s%20Guild%5D.zip

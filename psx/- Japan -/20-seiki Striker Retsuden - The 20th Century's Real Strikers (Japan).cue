@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/20-seiki Striker Retsuden - The 20th Century's Real Strikers (Japan).zip

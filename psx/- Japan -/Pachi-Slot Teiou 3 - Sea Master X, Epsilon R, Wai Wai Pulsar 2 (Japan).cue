@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou 3 - Sea Master X, Epsilon R, Wai Wai Pulsar 2 (Japan).zip

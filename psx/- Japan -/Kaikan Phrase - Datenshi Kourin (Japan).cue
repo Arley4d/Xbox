@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kaikan Phrase - Datenshi Kourin (Japan).zip

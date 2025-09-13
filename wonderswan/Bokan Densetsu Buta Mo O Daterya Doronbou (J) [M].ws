@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Bokan Densetsu Buta Mo O Daterya Doronbou (J) [M].ws

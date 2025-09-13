@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shiritsu Justice Gakuen - Nekketsu Seishun Nikki 2 (Japan).zip

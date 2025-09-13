@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gotha II - Tenkuu no Kishi (Japan).zip

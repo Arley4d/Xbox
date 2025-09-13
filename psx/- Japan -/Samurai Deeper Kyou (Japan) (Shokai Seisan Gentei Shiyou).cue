@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Samurai Deeper Kyou (Japan) (Shokai Seisan Gentei Shiyou).zip

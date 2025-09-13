@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania Gaiden - Chouatsu Densetsu! Golden Rookie & Fire V & Ryuuou (Japan).zip

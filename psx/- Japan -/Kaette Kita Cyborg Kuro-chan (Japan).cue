@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kaette Kita Cyborg Kuro-chan (Japan).zip

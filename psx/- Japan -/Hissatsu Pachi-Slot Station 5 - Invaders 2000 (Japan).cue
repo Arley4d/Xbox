@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachi-Slot Station 5 - Invaders 2000 (Japan).zip

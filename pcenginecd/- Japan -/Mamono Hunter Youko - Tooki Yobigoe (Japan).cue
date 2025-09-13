@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Mamono Hunter Youko - Tooki Yobigoe (Japan).zip

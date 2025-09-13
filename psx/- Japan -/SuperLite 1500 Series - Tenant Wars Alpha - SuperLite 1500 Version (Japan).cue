@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SuperLite 1500 Series - Tenant Wars Alpha - SuperLite 1500 Version (Japan).zip

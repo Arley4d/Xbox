@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Oh-chan no Oekaki Logic 2 (Japan) (Rev 1).zip

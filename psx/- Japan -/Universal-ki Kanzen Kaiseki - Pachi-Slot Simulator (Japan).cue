@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Universal-ki Kanzen Kaiseki - Pachi-Slot Simulator (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Rival Schools + Resident Evil 2 + Bloody Roar + Street Fighter EX Plus Alpha + Mr Domino + Victory Boxing 2 (France).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station Now 6 - Shinsei!! Areddin 21 (Japan).zip

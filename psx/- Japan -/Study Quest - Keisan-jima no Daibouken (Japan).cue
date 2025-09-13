@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Study Quest - Keisan-jima no Daibouken (Japan).zip

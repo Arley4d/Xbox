@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Morita Kazurou no Gomoku Narabe to Renju (Japan).zip

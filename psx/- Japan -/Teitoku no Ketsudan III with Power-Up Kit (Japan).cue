@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Teitoku no Ketsudan III with Power-Up Kit (Japan).zip

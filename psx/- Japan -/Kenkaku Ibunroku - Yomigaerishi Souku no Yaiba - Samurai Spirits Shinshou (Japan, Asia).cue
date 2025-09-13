@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kenkaku Ibunroku - Yomigaerishi Souku no Yaiba - Samurai Spirits Shinshou (Japan, Asia).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Ginga Fukei Densetsu Sapphire (Japan) (Reprint).zip

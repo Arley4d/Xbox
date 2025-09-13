@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ridge Racer Revolution (Japan) (Rev 1).zip

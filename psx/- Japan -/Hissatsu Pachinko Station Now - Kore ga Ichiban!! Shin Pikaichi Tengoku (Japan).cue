@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station Now - Kore ga Ichiban!! Shin Pikaichi Tengoku (Japan).zip

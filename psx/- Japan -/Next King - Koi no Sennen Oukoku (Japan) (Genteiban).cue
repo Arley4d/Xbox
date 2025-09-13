@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Next King - Koi no Sennen Oukoku (Japan) (Genteiban).zip

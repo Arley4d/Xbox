@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Adidas Power Soccer International '97 (Europe) (En,Fr,De,Es,It,Nl).zip

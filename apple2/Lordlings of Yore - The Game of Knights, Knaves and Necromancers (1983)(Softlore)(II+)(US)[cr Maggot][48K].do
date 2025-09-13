@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Lordlings%20of%20Yore%20-%20The%20Game%20of%20Knights%2C%20Knaves%20and%20Necromancers%20%281983%29%28Softlore%29%28II%2B%29%28US%29%5Bcr%20Maggot%5D%5B48K%5D.zip

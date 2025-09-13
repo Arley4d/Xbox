@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station 5 - Deramaitta & Irete Nanbo (Japan).zip

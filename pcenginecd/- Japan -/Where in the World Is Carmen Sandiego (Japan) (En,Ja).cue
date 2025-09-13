@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Where in the World Is Carmen Sandiego (Japan) (En,Ja).zip

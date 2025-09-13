@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Virtual Kyoutei '98 (Japan).zip

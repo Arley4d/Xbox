@@ -1,0 +1,2 @@
+https://archive.org/download/apple-ii-games-do/Questprobe%20featuring%20The%20Hulk%20v2.3-126%20%281985%29%28Adventure%20International%29%28Disk%201%20of%202%29%5Bcr%20Syndicate%20-%20Whip%5D.zip
+https://archive.org/download/apple-ii-games-do/Questprobe%20featuring%20The%20Hulk%20v2.3-126%20%281985%29%28Adventure%20International%29%28Disk%202%20of%202%29%28Data%20Disk%29%5Bcr%20Syndicate%20-%20Whip%5D.zip

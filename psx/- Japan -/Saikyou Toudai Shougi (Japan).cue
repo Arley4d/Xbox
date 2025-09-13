@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Saikyou Toudai Shougi (Japan).zip

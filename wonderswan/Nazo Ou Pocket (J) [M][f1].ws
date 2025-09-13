@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Nazo Ou Pocket (J) [M][f1].ws

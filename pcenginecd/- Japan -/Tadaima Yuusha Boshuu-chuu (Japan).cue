@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Tadaima Yuusha Boshuu-chuu (Japan).zip

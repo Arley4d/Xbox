@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bishoujo Ren'ai Mahjong Series - Karan Koron Gakuen - Pure Love-hen (Japan).zip

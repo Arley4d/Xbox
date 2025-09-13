@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Magical Drop F - Daibouken mo Rakujanai! (Japan).zip

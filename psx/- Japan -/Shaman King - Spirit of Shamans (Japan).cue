@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shaman King - Spirit of Shamans (Japan).zip

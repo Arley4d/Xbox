@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Aurora Quest - Otaku no Seiza in Another World (Japan).zip

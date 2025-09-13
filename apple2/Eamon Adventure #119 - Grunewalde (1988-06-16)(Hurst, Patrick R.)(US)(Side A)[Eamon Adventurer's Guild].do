@@ -1,0 +1,2 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23119%20-%20Grunewalde%20%281988-06-16%29%28Hurst%2C%20Patrick%20R.%29%28US%29%28Side%20A%29%5BEamon%20Adventurer%27s%20Guild%5D.zip
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23119%20-%20Grunewalde%20%281988-06-16%29%28Hurst%2C%20Patrick%20R.%29%28US%29%28Side%20B%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

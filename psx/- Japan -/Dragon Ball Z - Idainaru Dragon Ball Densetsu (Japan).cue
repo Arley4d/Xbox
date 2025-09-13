@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Dragon Ball Z - Idainaru Dragon Ball Densetsu (Japan).zip

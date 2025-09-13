@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gran Turismo 2 (Japan) (Disc 2) (Gran Turismo) (Beta) (1999-10-26).zip

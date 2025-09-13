@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tenkuu no Restaurant - Hello! Project Ver. (Japan).zip

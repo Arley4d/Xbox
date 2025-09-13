@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nibiiro no Koubou - 32-nin no Senshachou (Japan).zip

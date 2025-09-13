@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/PlayStation Comic - Carol the DarkAngel (Japan).zip

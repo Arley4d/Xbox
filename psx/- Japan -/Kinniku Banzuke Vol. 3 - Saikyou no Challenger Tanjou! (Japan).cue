@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kinniku Banzuke Vol. 3 - Saikyou no Challenger Tanjou! (Japan).zip

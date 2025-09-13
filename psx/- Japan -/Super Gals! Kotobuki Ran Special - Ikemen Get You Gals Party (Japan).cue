@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Super Gals! Kotobuki Ran Special - Ikemen Get You Gals Party (Japan).zip

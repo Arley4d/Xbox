@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gionbana 2 - Kanazawa Bunko-hen (Japan).zip

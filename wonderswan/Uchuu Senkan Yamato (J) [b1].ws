@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Uchuu Senkan Yamato (J) [b1].ws

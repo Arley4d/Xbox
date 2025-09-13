@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Zoids - Teikoku vs. Kyouwakoku - Meka Seitai no Idenshi (Japan).zip

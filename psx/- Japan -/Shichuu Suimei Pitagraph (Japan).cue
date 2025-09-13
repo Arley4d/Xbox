@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shichuu Suimei Pitagraph (Japan).zip

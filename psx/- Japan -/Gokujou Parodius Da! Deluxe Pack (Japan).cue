@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gokujou Parodius Da! Deluxe Pack (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Philips - CD-i/Revolution in Color, A - Russia Kindai Kaiga no Reimei (Japan) (En,Ja,Fr,De,Es,It,Nl).zip

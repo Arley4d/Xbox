@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slot! Pro 5 - Naniwa Sakura Fubuki & Shimauta (Japan).zip

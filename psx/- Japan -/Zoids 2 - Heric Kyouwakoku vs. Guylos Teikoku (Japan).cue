@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Zoids 2 - Heric Kyouwakoku vs. Guylos Teikoku (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pro Wrestling Sengokuden 2 - Kakutou Emaki (Japan).zip

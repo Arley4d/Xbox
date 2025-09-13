@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Doki Doki Pretty League (Japan) (Shokai Genteiban).zip

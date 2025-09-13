@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Miner%20%281982%29%28Smith%2C%20Doug%29.zip

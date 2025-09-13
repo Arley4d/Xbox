@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kids Station - Hello Kitty to Album Nikki o Tsukurimasho! (Japan) (Controller Set).zip

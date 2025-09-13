@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Universal Virtua Pachi-Slot - Hisshou Kouryakuhou (Japan).zip

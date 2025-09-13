@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/ROM^2 Karaoke Vol. 2 - Nattoku Idol (Japan).zip

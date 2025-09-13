@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bastard!! Utsuronaru Kamigami no Utsuwa (Japan).zip

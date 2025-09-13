@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Kinnikuman Nisei Choujin Seisenshi (J) [b1].ws

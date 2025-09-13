@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/All Star Soccer (Europe) (En,Fr,De,It).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Capcom Generation - Dai-1-shuu Gekitsuiou no Jidai (Japan).zip

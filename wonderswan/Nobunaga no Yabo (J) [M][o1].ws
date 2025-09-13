@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Nobunaga no Yabo (J) [M][o1].ws

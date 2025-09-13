@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Soukou Kihei Votoms Gaiden - Ao no Kishi Berserga Monogatari (Japan) (Limited Edition).zip

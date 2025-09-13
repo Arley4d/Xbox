@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Seisenshi Denshou - Jantaku no Kishi (Japan).zip

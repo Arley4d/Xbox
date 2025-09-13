@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Kanzen Kouryaku - Aruze Koushiki Guide Volume 4 (Japan).zip

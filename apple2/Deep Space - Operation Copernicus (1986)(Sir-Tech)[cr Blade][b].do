@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Deep%20Space%20-%20Operation%20Copernicus%20%281986%29%28Sir-Tech%29%5Bcr%20Blade%5D%5Bb%5D.zip

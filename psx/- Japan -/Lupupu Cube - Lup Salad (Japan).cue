@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Lupupu Cube - Lup Salad (Japan).zip

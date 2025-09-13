@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Taiyou no Shippo - Wild, Pure, Simple Life (Japan).zip

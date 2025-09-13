@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/0 kara no Shougi - Shougi Youchien Ayumi-gumi (Japan).zip

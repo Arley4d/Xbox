@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Othello World II - Yume to Michi e no Chousen (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Super Real Mahjong Special - Miki Kasumi Shouko no Omoide yori (Japan).zip

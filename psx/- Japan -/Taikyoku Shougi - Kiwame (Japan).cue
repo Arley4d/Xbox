@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Taikyoku Shougi - Kiwame (Japan).zip

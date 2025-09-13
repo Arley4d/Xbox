@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23022%20-%20The%20Senator%27s%20Chambers%20%281995-08-18%29%28Plamondon%2C%20James%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

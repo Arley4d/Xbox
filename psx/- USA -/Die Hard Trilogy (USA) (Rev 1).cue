@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Die Hard Trilogy (USA) (Rev 1).zip

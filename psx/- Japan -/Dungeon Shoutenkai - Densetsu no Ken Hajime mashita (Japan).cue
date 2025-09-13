@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Dungeon Shoutenkai - Densetsu no Ken Hajime mashita (Japan).zip

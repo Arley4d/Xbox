@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/i-mode mo Issho - Doko Demo Issho Tsuika Disc (Japan).zip

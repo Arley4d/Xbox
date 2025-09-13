@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jikki Pachi-Slot Tettei Kouryaku - Yamasa Collection (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kids Station - Ponkickies 21 - Game no Omocha-bako (Japan) (Controller Set).zip

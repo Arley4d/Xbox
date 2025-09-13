@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Sexy Idol Mahjong - Yakyuuken no Uta (Japan).zip

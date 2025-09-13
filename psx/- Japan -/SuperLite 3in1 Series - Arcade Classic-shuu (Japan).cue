@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SuperLite 3in1 Series - Arcade Classic-shuu (Japan).zip

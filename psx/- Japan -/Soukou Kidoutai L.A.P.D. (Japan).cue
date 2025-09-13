@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Soukou Kidoutai L.A.P.D. (Japan).zip

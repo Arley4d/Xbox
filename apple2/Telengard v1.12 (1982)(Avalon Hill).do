@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Telengard%20v1.12%20%281982%29%28Avalon%20Hill%29.zip

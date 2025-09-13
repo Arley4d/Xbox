@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ore no Yotto - Ganbare! Nippon Challenge (Japan) (En,Ja).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Blue Breaker - Egao no Yakusoku (Japan).zip

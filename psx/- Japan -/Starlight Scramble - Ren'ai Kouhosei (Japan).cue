@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Starlight Scramble - Ren'ai Kouhosei (Japan).zip

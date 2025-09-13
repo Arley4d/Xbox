@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kids Station - Motto! Oja Majo DoReMi - Maho-dou Smile Party (Japan) (Controller Set).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hashiriya - Ookami-tachi no Densetsu (Japan).zip

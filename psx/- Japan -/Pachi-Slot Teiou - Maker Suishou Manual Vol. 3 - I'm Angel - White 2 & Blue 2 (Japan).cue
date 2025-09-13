@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou - Maker Suishou Manual Vol. 3 - I'm Angel - White 2 & Blue 2 (Japan).zip

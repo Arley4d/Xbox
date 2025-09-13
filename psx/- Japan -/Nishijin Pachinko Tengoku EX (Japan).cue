@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nishijin Pachinko Tengoku EX (Japan).zip

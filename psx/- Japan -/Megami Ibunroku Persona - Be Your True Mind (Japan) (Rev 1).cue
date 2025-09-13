@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Megami Ibunroku Persona - Be Your True Mind (Japan) (Rev 1).zip

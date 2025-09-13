@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Hihou Densetsu - Chris no Bouken (Japan).zip

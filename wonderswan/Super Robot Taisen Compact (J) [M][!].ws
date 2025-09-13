@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Super Robot Taisen Compact (J) [M][!].ws

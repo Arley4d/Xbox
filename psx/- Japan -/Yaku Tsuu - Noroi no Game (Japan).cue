@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Yaku Tsuu - Noroi no Game (Japan).zip

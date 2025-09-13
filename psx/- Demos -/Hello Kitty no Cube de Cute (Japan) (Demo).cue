@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hello Kitty no Cube de Cute (Japan) (Demo).zip

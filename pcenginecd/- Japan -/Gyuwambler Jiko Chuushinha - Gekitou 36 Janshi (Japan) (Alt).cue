@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Gyuwambler Jiko Chuushinha - Gekitou 36 Janshi (Japan) (Alt).zip

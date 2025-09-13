@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Glocal Hexcite (J) [M][o1].ws

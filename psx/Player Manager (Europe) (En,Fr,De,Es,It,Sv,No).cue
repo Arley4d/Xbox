@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Player Manager (Europe) (En,Fr,De,Es,It,Sv,No).zip

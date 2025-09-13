@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SuperLite 1500 Series - Seiyou Senseijutsu - Mark Yazaki Kanshuu (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Oshigoto-shiki Jinsei Game - Mezase Shokugyou King (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Shinsetsu Shiawase Usagi f - Yuujou yorimo Aiyoku (Japan) (Unl).zip

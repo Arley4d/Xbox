@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Taikou Risshiden II (Japan) (Rev 1).zip

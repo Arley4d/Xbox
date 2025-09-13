@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Soukou Kihei Votoms - Koutetsu no Gunzei (Japan).zip

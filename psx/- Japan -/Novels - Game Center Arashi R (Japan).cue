@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Novels - Game Center Arashi R (Japan).zip

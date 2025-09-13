@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Fever Sankyo - Koushiki Pachinko Simulation (J) [M][f1].ws

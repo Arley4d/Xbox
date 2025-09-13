@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shin Nihon Pro Wrestling - Toukon Retsuden 2 (Japan).zip

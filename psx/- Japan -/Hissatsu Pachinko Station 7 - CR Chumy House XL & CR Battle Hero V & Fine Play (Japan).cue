@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Hissatsu Pachinko Station 7 - CR Chumy House XL & CR Battle Hero V & Fine Play (Japan).zip

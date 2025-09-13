@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ippatsu Gyakuten - Gamble King Densetsu (Japan).zip

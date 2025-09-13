@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Shachou Eiyuuden (Japan) (Ja,Zh).zip

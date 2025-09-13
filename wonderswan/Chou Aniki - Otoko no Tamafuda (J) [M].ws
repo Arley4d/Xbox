@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Chou Aniki - Otoko no Tamafuda (J) [M].ws

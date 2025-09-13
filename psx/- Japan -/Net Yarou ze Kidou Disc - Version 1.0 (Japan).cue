@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Net Yarou ze Kidou Disc - Version 1.0 (Japan).zip

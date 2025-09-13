@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Mario Mushano no Chou Shougi Juku - Mario Mushano's Hyper Shogi School (Japan).zip

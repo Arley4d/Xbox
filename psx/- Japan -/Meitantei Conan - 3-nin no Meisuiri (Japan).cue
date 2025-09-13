@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Meitantei Conan - 3-nin no Meisuiri (Japan).zip

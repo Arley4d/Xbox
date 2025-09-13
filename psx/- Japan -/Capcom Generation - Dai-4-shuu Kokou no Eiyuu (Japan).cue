@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Capcom Generation - Dai-4-shuu Kokou no Eiyuu (Japan).zip

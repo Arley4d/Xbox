@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Seiken Densetsu - Legend of Mana (Japan, Asia).zip

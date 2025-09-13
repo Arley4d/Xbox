@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Bazar de Gozarre no Game de Gozarre (Japan).zip

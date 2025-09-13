@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Game Soft o Tsukurou - Let's Be a Super Game Creator!! (Japan).zip

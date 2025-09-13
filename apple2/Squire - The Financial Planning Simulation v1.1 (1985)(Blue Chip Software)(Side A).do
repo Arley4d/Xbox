@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Squire%20-%20The%20Financial%20Planning%20Simulation%20v1.1%20%281985%29%28Blue%20Chip%20Software%29%28Side%20A%29.zip

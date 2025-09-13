@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Tenkuu no Escaflowne (Japan) (Genteiban).zip

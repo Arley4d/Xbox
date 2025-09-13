@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Rockman & Forte - Mirai Kara no Chousen Sha (J) [M][t1].ws

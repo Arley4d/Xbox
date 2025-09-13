@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Riichi Mahjong - Ohitorisama demo Utemasu! (Japan).zip

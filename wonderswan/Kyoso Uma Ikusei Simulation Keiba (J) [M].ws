@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Kyoso Uma Ikusei Simulation Keiba (J) [M].ws

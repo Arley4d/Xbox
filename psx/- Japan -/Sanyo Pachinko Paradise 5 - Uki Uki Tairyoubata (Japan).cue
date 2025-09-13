@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sanyo Pachinko Paradise 5 - Uki Uki Tairyoubata (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Umizuri Ni Ikou (J) [M][!].ws

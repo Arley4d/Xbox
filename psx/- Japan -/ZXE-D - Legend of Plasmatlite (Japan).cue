@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/ZXE-D - Legend of Plasmatlite (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pachi-Slot Teiou - Maker Suishou Manual Vol. 6 - Takarabune (Japan).zip

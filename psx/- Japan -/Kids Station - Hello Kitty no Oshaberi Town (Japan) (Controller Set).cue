@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kids Station - Hello Kitty no Oshaberi Town (Japan) (Controller Set).zip

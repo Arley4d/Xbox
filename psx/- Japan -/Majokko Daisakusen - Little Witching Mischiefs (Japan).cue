@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Majokko Daisakusen - Little Witching Mischiefs (Japan).zip

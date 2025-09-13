@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Yu-Gi-Oh! Monster Capsule Breed & Battle (Japan).zip

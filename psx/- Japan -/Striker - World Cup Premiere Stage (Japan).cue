@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Striker - World Cup Premiere Stage (Japan).zip

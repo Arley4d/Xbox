@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Uzumaki - Denshi Kaiki Hen (J) [M][f1].ws

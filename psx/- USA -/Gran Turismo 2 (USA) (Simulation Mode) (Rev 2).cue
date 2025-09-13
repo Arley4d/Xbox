@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Gran Turismo 2 (USA) (Simulation Mode) (Rev 2).zip

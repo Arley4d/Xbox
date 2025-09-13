@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Hunter X Hunter - Ichi O Tsugu Mono (J) [M][f1].ws

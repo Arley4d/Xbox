@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Seikon no Joka - Hikari to Yami no Seioujo (Japan).zip

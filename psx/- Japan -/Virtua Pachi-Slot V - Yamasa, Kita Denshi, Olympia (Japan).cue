@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Virtua Pachi-Slot V - Yamasa, Kita Denshi, Olympia (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Mahjong Touryuumon (J) [M][!].ws

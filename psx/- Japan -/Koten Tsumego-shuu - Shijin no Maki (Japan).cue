@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Koten Tsumego-shuu - Shijin no Maki (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/SD Gundam Gashapon Senki - Episode 1 (J) [M][!].ws

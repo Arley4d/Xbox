@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jissen Pachi-Slot Hisshouhou! Single - Kung-Fu Lady (Japan).zip

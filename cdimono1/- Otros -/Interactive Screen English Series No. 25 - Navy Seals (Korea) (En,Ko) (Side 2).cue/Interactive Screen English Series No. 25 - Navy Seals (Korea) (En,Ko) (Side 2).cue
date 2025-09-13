@@ -1,0 +1,1 @@
+https://archive.org/download/philips_cd-i/Interactive Screen English Series No. 25 - Navy Seals (Korea) (En,Ko) (Side 2).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/From TV Animation - One Piece - Mezase Kaizoku Ou (J) [M][f1].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Samurai Spirits - Zankurou Musouken (Japan).zip

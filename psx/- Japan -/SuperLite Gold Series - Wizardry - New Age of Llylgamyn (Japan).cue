@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/SuperLite Gold Series - Wizardry - New Age of Llylgamyn (Japan).zip

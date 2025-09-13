@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Lightning Legend - Daigo no Daibouken (Japan).zip

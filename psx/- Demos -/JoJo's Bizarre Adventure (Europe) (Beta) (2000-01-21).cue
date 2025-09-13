@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/JoJo's Bizarre Adventure (Europe) (Beta) (2000-01-21).zip

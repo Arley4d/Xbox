@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Katou Hifumi Kudan - Shougi Club (Japan).zip

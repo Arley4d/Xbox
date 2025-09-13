@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Digimon Adventure 02 - Tag Tamers (J) [M][!].ws

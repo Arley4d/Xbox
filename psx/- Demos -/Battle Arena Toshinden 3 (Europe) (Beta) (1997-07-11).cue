@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Battle Arena Toshinden 3 (Europe) (Beta) (1997-07-11).zip

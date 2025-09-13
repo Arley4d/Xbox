@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Derby Stallion Magazine 2000 Vol. 2 (Japan).zip

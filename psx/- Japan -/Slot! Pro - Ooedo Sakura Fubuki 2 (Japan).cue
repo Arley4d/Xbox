@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slot! Pro - Ooedo Sakura Fubuki 2 (Japan).zip

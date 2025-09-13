@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Alnam no Kiba - Juuzoku Juuni Shinto Densetsu (Japan).zip

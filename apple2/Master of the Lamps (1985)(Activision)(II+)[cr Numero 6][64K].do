@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Master%20of%20the%20Lamps%20%281985%29%28Activision%29%28II%2B%29%5Bcr%20Numero%206%5D%5B64K%5D.zip

@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Shanghai%20%281986%29%28Activision%29%28II%2B%29%5Bcr%20First%20Class%5D%5B48K%5D.zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pocket Zanmai - 3 Title Iri Taikenban (PAQA, PokeTan, Pocket Jiman) (Japan).zip

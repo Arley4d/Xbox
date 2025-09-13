@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Oja Majo DoReMi Dokkan! Nijiiro ParaDice (Japan).zip

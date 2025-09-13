@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Legend of Xanadu - Kaze no Densetsu Xanadu II (Japan).zip

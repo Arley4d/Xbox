@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23060%20-%20The%20Sewers%20of%20Chicago%20%281989-07-20%29%28Allen%2C%20Jeff%29%28US%29%5Bf%20speedups%5D%5BEamon%20Adventurer%27s%20Guild%5D.zip

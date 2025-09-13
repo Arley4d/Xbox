@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Wizardry Empire II - Oujo no Isan (Japan).zip

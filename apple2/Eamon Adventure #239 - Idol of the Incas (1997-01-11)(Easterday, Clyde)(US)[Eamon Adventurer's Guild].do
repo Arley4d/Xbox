@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Eamon%20Adventure%20%23239%20-%20Idol%20of%20the%20Incas%20%281997-01-11%29%28Easterday%2C%20Clyde%29%28US%29%5BEamon%20Adventurer%27s%20Guild%5D.zip

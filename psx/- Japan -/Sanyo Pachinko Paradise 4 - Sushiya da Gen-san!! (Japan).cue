@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sanyo Pachinko Paradise 4 - Sushiya da Gen-san!! (Japan).zip

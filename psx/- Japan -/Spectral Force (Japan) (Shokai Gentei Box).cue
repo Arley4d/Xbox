@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Spectral Force (Japan) (Shokai Gentei Box).zip

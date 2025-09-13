@@ -1,0 +1,1 @@
+https://archive.org/download/philips_cd-i/Interactive Screen English Series No. 21 - Little Man Tate (Korea) (En,Ko) (Side 1).zip

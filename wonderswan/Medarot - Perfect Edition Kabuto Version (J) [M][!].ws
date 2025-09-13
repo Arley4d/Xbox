@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Medarot - Perfect Edition Kabuto Version (J) [M][!].ws

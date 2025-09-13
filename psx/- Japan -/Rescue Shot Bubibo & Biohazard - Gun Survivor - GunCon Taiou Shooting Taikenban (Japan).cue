@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Rescue Shot Bubibo & Biohazard - Gun Survivor - GunCon Taiou Shooting Taikenban (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Slotter Mania Core - Tokonatsu no Atsusa! Oasis (Japan).zip

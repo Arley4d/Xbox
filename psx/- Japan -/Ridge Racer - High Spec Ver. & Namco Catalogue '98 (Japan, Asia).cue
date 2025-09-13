@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Ridge Racer - High Spec Ver. & Namco Catalogue '98 (Japan, Asia).zip

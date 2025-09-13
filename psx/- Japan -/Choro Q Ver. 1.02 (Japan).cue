@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Choro Q Ver. 1.02 (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple 1500 Series Vol. 59 - The Suiri - IT Tantei 18 no Jikenbo (Japan).zip

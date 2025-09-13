@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Wizardry VII - Guardia no Houju (Japan).zip

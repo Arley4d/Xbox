@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Jantei Monogatari 2 - Uchuu Tantei Diban - Shutsudou-hen (Japan).zip

@@ -1,0 +1,1 @@
+https://archive.org/download/WonderswanRomCollectionByGhostware/Meitantei Conan - Majutsushi no Chousenjou! (J) [M][!].ws

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Sid Meier's Civilization - Shin Sekai Shichidai Bunmei (Japan).zip

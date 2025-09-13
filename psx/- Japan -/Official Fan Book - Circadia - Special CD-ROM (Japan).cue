@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Official Fan Book - Circadia - Special CD-ROM (Japan).zip

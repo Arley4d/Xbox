@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/radicalgames@psygnosis v.3 (Europe) (En,Fr,De,Es,It,Fi).zip

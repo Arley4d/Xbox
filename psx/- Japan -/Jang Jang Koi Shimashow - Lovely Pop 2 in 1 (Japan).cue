@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jang Jang Koi Shimashow - Lovely Pop 2 in 1 (Japan).zip

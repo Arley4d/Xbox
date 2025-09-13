@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/Akumajou Dracula X - Chi no Rondo (Japan) (FABT, FACT).zip

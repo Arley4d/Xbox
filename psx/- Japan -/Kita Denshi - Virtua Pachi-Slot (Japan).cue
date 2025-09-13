@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Kita Denshi - Virtua Pachi-Slot (Japan).zip

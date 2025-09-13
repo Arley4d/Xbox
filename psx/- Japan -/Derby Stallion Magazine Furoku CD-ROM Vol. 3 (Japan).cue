@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Derby Stallion Magazine Furoku CD-ROM Vol. 3 (Japan).zip

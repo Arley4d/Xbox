@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/DigimonWorld - Digital Card Arena (Japan).zip

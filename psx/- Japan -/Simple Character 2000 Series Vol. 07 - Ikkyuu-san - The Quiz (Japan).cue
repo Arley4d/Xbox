@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Simple Character 2000 Series Vol. 07 - Ikkyuu-san - The Quiz (Japan).zip

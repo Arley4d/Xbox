@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Chocobo no Fushigi na Dungeon 2 (Japan, Asia).zip

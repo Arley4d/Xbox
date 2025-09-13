@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Legaia Densetsu (Japan) (Demo 2).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Nightruth - Explanation of the Paranormal - 'Yami no Tobira' (Japan).zip

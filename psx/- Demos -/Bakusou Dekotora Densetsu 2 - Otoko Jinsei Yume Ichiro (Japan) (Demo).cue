@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Bakusou Dekotora Densetsu 2 - Otoko Jinsei Yume Ichiro (Japan) (Demo).zip

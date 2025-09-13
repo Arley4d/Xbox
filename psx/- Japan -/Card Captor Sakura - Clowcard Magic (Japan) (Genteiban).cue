@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Card Captor Sakura - Clowcard Magic (Japan) (Genteiban).zip

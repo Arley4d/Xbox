@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Quiz Chara-Oke Don! Toei Tokusatsu Hero Part 2 (Japan).zip

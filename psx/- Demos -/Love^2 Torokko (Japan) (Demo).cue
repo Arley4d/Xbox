@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Love^2 Torokko (Japan) (Demo).zip

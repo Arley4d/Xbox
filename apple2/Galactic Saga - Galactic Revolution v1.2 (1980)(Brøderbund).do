@@ -1,0 +1,1 @@
+https://archive.org/download/apple-ii-games-do/Galactic%20Saga%20-%20Galactic%20Revolution%20v1.2%20%281980%29%28Br%C3%B8derbund%29.zip

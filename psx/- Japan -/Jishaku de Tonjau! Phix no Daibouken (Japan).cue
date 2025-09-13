@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Jishaku de Tonjau! Phix no Daibouken (Japan).zip

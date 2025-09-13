@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/Sony - PlayStation/Pandora Max Series Vol. 1 - Dragon Knights Glorious (Japan).zip

@@ -1,0 +1,1 @@
+https://myrient.erista.me/files/Redump/NEC - PC Engine CD & TurboGrafx CD/J-Thunder - Tsumetai Hada wa Shoujo o Nurasu (Japan) (Unl).zip
